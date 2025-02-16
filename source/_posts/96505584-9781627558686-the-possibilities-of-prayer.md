@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2025-01-28T18:19:00.141Z
-updated: 2025-02-03T18:23:07.091Z
+date: 2025-02-13T20:39:32.336Z
+updated: 2025-02-16T00:08:59.442Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a91f112407fbe692b6f17b2370ea5709f0.jpg
@@ -140,18 +140,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96037668-9781633410732-blackthorns-botanical-magic/"><u>Blackthorn's Botanical Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96059414-9781786781925-spiritual-science/"><u>Spiritual Science | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96059395-9781101993071-strange-frequencies/"><u>Strange Frequencies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96059415-9781786781970-the-anatomy-of-loneliness/"><u>The Anatomy of Loneliness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96064561-9781608685554-the-creation-frequency/"><u>The Creation Frequency | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96060104-9781616406448-the-future-of-astrology/"><u>The Future of Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96039702-9781937866020-the-medical-cannabis-guidebook/"><u>The Medical Cannabis Guidebook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96037671-9781938289835-the-seven-secrets-to-healthy-happy-relationships/"><u>The Seven Secrets to Healthy, Happy Relationships | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96037670-9781881098478-the-witches-almanac-issue-38-spring-2019-to-spring-2020/"><u>The Witches' Almanac: Issue 38, Spring 2019 to Spring 2020 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106033-9780646820637-perceptions-perspectives/"><u>Perceptions & Perspectives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106058-9781087907307-poop-random-words-musings-and-insight/"><u>Poop! Random Words, Musings and Insight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106068-9781087907413-sleep-paralysis/"><u>Sleep Paralysis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106278-9781913140267-the-chi-book/"><u>The Chi Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106369-9781913479312-the-female-archangels/"><u>The Female Archangels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106420-9781907105173-the-mentor-within/"><u>The Mentor Within | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

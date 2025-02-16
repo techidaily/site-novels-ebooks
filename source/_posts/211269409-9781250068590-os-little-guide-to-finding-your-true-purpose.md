@@ -1,7 +1,7 @@
 ---
 title: O's Little Guide to Finding Your True Purpose | Free Book
-date: 2024-10-24T23:20:51.776Z
-updated: 2024-10-26T21:07:11.925Z
+date: 2025-02-12T19:05:12.174Z
+updated: 2025-02-15T20:07:05.225Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6166d40c3199f5b7e54d87278b9a61dc48f87d1fba6b82ff1472329f43825d0a.jpg
@@ -175,3 +175,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6166d40c3199f5b7e54d87278b9a61d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1424604-9781780286945-beyond-the-occult/"><u>Beyond the Occult | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1426734--heaven-on-earth/"><u>Heaven on Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424603-9781780286266-prayers-of-manifestation/"><u>Prayers of Manifestation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424605-9781780286952-supernatural/"><u>Supernatural | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424595-9781780286150-the-gene-keys/"><u>The Gene Keys | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424602-9781780286242-the-last-pope/"><u>The Last Pope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424594-9781780286136-your-soul-contract-decoded/"><u>Your Soul Contract Decoded | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

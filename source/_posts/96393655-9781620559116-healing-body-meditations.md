@@ -1,7 +1,7 @@
 ---
 title: Healing Body Meditations | Free Book
-date: 2025-02-02T17:01:31.676Z
-updated: 2025-02-03T18:27:26.817Z
+date: 2025-02-10T00:44:55.931Z
+updated: 2025-02-15T19:18:08.039Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcff9aae1b5bab96618e9e144eb7980135f3.jpg
@@ -173,13 +173,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bbba2487c561eb1a3f27d4d740dbbcf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1127063-9781612830667-psychic-children-speak-to-the-world/"><u>Psychic Children Speak to the World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127061-9781612830421-the-practical-psychic-self-defense-handbook/"><u>The Practical Psychic Self-Defense Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127064-9781612831701-the-psychic-housewives-handbook/"><u>The Psychic Housewives' Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127066-9781612830438-the-quantum-doctor/"><u>The Quantum Doctor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210328048-9781944648190-a-return-to-eros/"><u>A Return to Eros | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210329460-9781528767521-ancient-mysteries-and-modern-revelations/"><u>Ancient Mysteries and Modern Revelations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210328005-9781935251248-biocentrism/"><u>Biocentrism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210328145-9781935251057-fit-soul-fit-body/"><u>Fit Soul, Fit Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210328171-9781941631072-life-in-life/"><u>Life in Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210329501-9781736712313-reflections-on-being-your-true-self-in-any-situation/"><u>Reflections on Being Your True Self in Any Situation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210329498-9781736712337-reflections-on-doing-your-great-work-in-any-occupation/"><u>Reflections on Doing Your Great Work in Any Occupation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210328456-9781937856700-warrior-pose/"><u>Warrior Pose | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

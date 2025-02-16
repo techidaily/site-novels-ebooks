@@ -1,7 +1,7 @@
 ---
 title: Do You Know Who You Really Are? | Free Book
-date: 2024-10-22T18:19:55.824Z
-updated: 2024-10-26T21:20:52.972Z
+date: 2025-02-12T17:55:23.529Z
+updated: 2025-02-15T18:45:33.626Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7098716e99f80661e8e168d55f9d942946e5e2fb740e2977d2e79bd535596218.jpg
@@ -161,3 +161,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7098716e99f80661e8e168d55f9d942
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2080613-9780984840731-birth-2012-and-beyond/"><u>Birth 2012 and Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2085846-9781493015788-haunted-hollywood-2nd-ed/"><u>Haunted Hollywood (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2085847-9781493015801-haunted-philadelphia/"><u>Haunted Philadelphia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2083636-9781614291718-living-mindfully/"><u>Living Mindfully | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2081564-9781782797289-not-i-not-other-than-i/"><u>Not I, Not other than I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2081565-9781785350917-pagan-dreaming/"><u>Pagan Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2084287-9781433688881-the-battle-plan-for-prayer/"><u>The Battle Plan for Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2081559-9781885928283-the-practice-of-magical-evocation/"><u>The Practice of Magical Evocation | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

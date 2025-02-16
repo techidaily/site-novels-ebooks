@@ -1,7 +1,7 @@
 ---
 title: Haunted Houses of California (4th ed.) | Free Book
-date: 2025-01-28T16:58:17.460Z
-updated: 2025-02-03T16:39:52.571Z
+date: 2025-02-08T16:40:04.706Z
+updated: 2025-02-15T21:59:16.270Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383036cba7baad5614435a5ff46aed5f58f1.jpg
@@ -171,17 +171,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a317cf4b37efd7484dfb7029a7fa383
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95935316-9781844098316-crystal-gifts/"><u>Crystal Gifts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95931743-9781507207192-emotional-detox/"><u>Emotional Detox | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935314-9781844093403-gem-water/"><u>Gem Water | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95931776-9781501188282-messages-from-the-divine/"><u>Messages from the Divine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935318-9781844093427-purifying-crystals/"><u>Purifying Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95931691-9781614294214-relational-mindfulness/"><u>Relational Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935315-9781844093373-the-healing-crystals-first-aid-manual/"><u>The Healing Crystals First Aid Manual | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95931739-9781507207215-the-modern-witchcraft-book-of-natural-magick/"><u>The Modern Witchcraft Book of Natural Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065024-9781647849702-001/"><u>生命奧秘全書001：靈魂光之真理實相（靈學篇） | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065021-9781647849726-003-the-great-tao-of-spiritual-science-series-03-the-great-tao/"><u>生命奧秘全書003：大道─靈性模式的修練（靈修篇）: The Great Tao of Spiritual Science Series 03: The Great Tao | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065026-9781647461201-are-you-polished/"><u>Are You Polished? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065089-9781989838525-bedtime-stories-guided-meditations-for-busy-adults-2-in-1/"><u>Bedtime Stories & Guided Meditations For Busy Adults (2 in 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065087-9781989838518-bedtime-stories-guided-meditations-for-busy-adults/"><u>Bedtime Stories & Guided Meditations for Busy Adults | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065471-9781982152321-space-nomads-set-a-course-for-mars/"><u>Space Nomads: Set a Course for Mars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210065396-9781982164874-the-house-your-stars-built/"><u>The House Your Stars Built | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210066607-9781908421395-the-scole-report/"><u>The Scole Report | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

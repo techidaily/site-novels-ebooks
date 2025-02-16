@@ -1,7 +1,7 @@
 ---
 title: Unlocking Your Intuition | Free Book
-date: 2025-01-27T17:06:10.322Z
-updated: 2025-02-03T16:57:25.118Z
+date: 2025-02-13T16:12:59.608Z
+updated: 2025-02-15T23:53:34.309Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc91bdc663b6f65fa5b3200c18dc7433ba47.jpg
@@ -144,15 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/096a83583c8e79dc189dddd8359ebc9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138567668-9781450258210-authentic-insights/"><u>Authentic Insights | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567583-9781617640384-el-infinito/"><u>El Infinito | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567677-9781491762011-how-to-unleash-the-supernatural-power-within-you/"><u>How to Unleash the Supernatural Power Within You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567641-9781452534121-its-a-metaphysical-world/"><u>It's a Metaphysical World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567765-9781469764887-journey-to-alternity/"><u>Journey to Alternity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567693-9781462020768-seventy-meditation-lessons-from-my-universe/"><u>Seventy Meditation Lessons from My Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365835-9781736939918-aspire/"><u>Aspire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210364420-9780645073263-etica-yogica-per-una-mente-equilibrata/"><u>Etica Yogica per Una Mente Equilibrata | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210364076-9781648410420-kitchen-witch/"><u>Kitchen Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365846-9780983285410-self-belonging/"><u>Self Belonging | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365829-9781914996214-the-lion-and-the-tiger/"><u>THE LION and THE TIGER | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365843-9781802271652-the-magic-of-healing-touch/"><u>The Magic of Healing Touch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210365700-9781087984407-unapologetic/"><u>Unapologetic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

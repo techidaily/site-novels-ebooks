@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Rediscovered Books) | Free Book
-date: 2025-01-31T17:54:20.128Z
-updated: 2025-02-03T16:10:12.107Z
+date: 2025-02-09T00:39:33.599Z
+updated: 2025-02-15T19:56:15.558Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584a9bd51d805bef4e36aefcfbb9894d30ca.jpg
@@ -153,17 +153,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95812447-9781616406387-a-souls-journey/"><u>A Soul's Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95812579-9781944529222-apparitions-hauntings-and-poltergeists/"><u>Apparitions, Hauntings, and Poltergeists | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95812551-9781507152256-astrologia-preditiva-estudo-dos-acontecimentos/"><u>Astrologia preditiva - Estudo dos acontecimentos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95812433-9781507151204-come-meditare-le-migliori-8-meditazioni-per-ridurre-lo-stress/"><u>Come meditare: Le migliori 8 meditazioni per ridurre lo stress | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95813395-9781616409050-dialogues-with-my-god-self/"><u>Dialogues with My God Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95812180-9781507171448-letat-de-reve-la-theorie-du-complot/"><u>L'état de rêve - La théorie du complot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95812999-9781944529284-psychic-research-and-modern-physics/"><u>Psychic Research and Modern Physics | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95812617-9781616409630-the-supermarket-sorceress/"><u>The Supermarket Sorceress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002081-9781609252168-about-peace/"><u>About Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002084-9781609252731-beyond-bizarre/"><u>Beyond Bizarre | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002088-9781609252212-nirvana-in-a-nutshell/"><u>Nirvana in a Nutshell | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002086-9781633411067-phantom-messages/"><u>Phantom Messages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002076-9781609252984-the-weiser-field-guide-to-the-paranormal/"><u>The Weiser Field Guide to the Paranormal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002079-9781609259037-under-the-influence/"><u>Under the Influence | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

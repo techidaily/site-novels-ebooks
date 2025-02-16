@@ -1,7 +1,7 @@
 ---
 title: The Shaman's Book of Extraordinary Practices | Free Book
-date: 2024-10-20T22:48:46.453Z
-updated: 2024-10-27T03:39:41.176Z
+date: 2025-02-12T17:26:36.287Z
+updated: 2025-02-15T22:02:15.823Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/979902570827227bfaa825741ae2bd832ce4a590c842db24e2e94658b360e9c6.jpg
@@ -168,3 +168,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/979902570827227bfaa825741ae2bd8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209841342-9780980784619-a-new-chapter/"><u>A New Chapter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841334-9780996568920-constant-awakening/"><u>Constant Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841008-9780977512669-pranayama-the-breath-of-yoga/"><u>Pranayama the Breath of Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841369-9780990584872-release-your-vision-torch/"><u>Release Your Vision Torch! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841373-9780996531511-stepping-into-the-platinum-age/"><u>Stepping into the Platinum Age | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841167-9780994359315-where-the-light-lives/"><u>Where The Light Lives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841278-9788460679677-your-magnificent-self-a-journey-to-freedom/"><u>Your Magnificent Self... A Journey to Freedom | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

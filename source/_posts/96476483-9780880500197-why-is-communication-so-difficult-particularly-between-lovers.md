@@ -1,7 +1,7 @@
 ---
 title: Why Is Communication So Difficult, Particularly Between Lovers? | Free Book
-date: 2025-02-01T17:50:08.172Z
-updated: 2025-02-03T17:24:38.121Z
+date: 2025-02-13T20:59:41.837Z
+updated: 2025-02-16T01:04:33.094Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/552ca18fc70bb1b4cab52fb0b94ecba02d0595eef03cefab50e725b75bcb8401.jpg
@@ -173,13 +173,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/552ca18fc70bb1b4cab52fb0b94ecba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96489670-9781578594726-real-encounters-different-dimensions-and-otherworldy-beings/"><u>Real Encounters, Different Dimensions and Otherworldy Beings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96489682-9781578594733-real-encounters-different-dimensions-and-otherworldy-beings/"><u>Real Encounters, Different Dimensions and Otherworldy Beings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96489663-9781578594276-unexplained/"><u>Unexplained! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96489675-9781578594283-unexplained/"><u>Unexplained! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233087-9781633412354-consorting-with-spirits/"><u>Consorting with Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233091-9781633412378-hoodoo-justice-magic/"><u>Hoodoo Justice Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233089-9781633412347-ossman-steels-classic-household-guide-to-appalachian-folk-healing/"><u>Ossman & Steel's Classic Household Guide to Appalachian Folk Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233093-9781633412408-pure-magic/"><u>Pure Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233092-9781633412095-saturn/"><u>Saturn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233090-9781633412026-spiritual-cleansing/"><u>Spiritual Cleansing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233096-9781950253203-the-7-energies-of-the-soul/"><u>The 7 Energies of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233088-9781633412330-the-mystical-qabalah/"><u>The Mystical Qabalah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233095-9781633412392-the-witch-at-the-forests-edge/"><u>The Witch at the Forest's Edge | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

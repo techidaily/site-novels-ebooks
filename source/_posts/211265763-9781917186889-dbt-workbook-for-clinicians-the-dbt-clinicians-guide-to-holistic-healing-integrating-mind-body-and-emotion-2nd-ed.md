@@ -1,7 +1,7 @@
 ---
 title: DBT Workbook For Clinicians-The DBT Clinician's Guide to Holistic Healing, Integrating Mind, Body, and Emotion (2nd ed.) | Free Book
-date: 2024-10-25T17:08:13.164Z
-updated: 2024-10-26T22:04:51.494Z
+date: 2025-02-11T02:07:13.281Z
+updated: 2025-02-15T20:16:13.934Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/033f52a30e8ea759ed904fd129c7aa92db6ed3f6c34c0981c4302d9e917f79c9.jpg
@@ -222,3 +222,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/033f52a30e8ea759ed904fd129c7aa9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138621176-9781601639288-a-wiccan-bible/"><u>A Wiccan Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621180-9781601639905-companion-for-the-apprentice-wizard/"><u>Companion for the Apprentice Wizard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621189-9781601637154-encyclopedia-of-the-undead/"><u>Encyclopedia of the Undead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621195-9781601637178-nostradamus-bibliomancer/"><u>Nostradamus, Bibliomancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621197-9781601634146-sky-people/"><u>Sky People | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621193-9781601635907-spell-castings/"><u>Spell Castings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621185-9781601636430-synchronicity/"><u>Synchronicity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621190-9781601636867-twilight-of-the-gods/"><u>Twilight of the Gods | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: An Overview of the Edgar Cayce Material | Free Book
-date: 2025-02-01T16:59:48.584Z
-updated: 2025-02-03T16:07:58.224Z
+date: 2025-02-11T17:15:10.462Z
+updated: 2025-02-15T19:16:08.042Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa86584d7ab55c0c2edc64b865697096a39f.jpg
@@ -139,13 +139,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0652cc1b120a41ba7847a17ba79faa8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138545006-9781401926748-accepting-the-psychic-torch/"><u>Accepting the Psychic Torch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544997-9781401941109-archetypes/"><u>Archetypes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545011-9781401927714-chants-of-a-lifetime/"><u>Chants of a Lifetime | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545009-9781401922306-cosmos/"><u>CosMos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355836-9781644115244-discover-your-soul-mission/"><u>Discover Your Soul Mission | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355875-9781250803771-reading-tea-leaves/"><u>Reading Tea Leaves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355832-9781644114254-ritual-as-remedy/"><u>Ritual as Remedy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355946-9781250828767-the-dream-book/"><u>The Dream Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355833-9781644114704-the-fourteen-holy-helpers/"><u>The Fourteen Holy Helpers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355860-9781250803757-the-golden-key-the-complete-original-edition/"><u>The Golden Key: The Complete Original Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355834-9781644114537-the-science-of-subtle-energy/"><u>The Science of Subtle Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355878-9781250845283-the-secret-of-the-ages-and-other-essential-works/"><u>The Secret of the Ages: And Other Essential Works | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

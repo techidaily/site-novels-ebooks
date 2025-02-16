@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Pisces | Free Book
-date: 2024-10-19T16:46:13.973Z
-updated: 2024-10-27T04:22:24.512Z
+date: 2025-02-08T21:05:25.149Z
+updated: 2025-02-15T16:52:01.687Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/491945f9f79cbee3f01c30e0ef6b9135fbbb29a758be90963ce5524338a237d7.jpg
@@ -168,3 +168,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/491945f9f79cbee3f01c30e0ef6b913
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209652300-9781912807086-earth-divination-earth-magic/"><u>Earth Divination, Earth Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209652345-9781493040841-haunted-ohio-2nd-ed/"><u>Haunted Ohio (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209652338-9781493040780-spooky-california-2nd-ed/"><u>Spooky California (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209652346-9781493040803-spooky-new-york-tales-of-hauntings-strange-happenings-and-other-local-lore-2nd-ed/"><u>Spooky New York: Tales Of Hauntings, Strange Happenings, And Other Local Lore (2nd ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

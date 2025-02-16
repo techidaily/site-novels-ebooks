@@ -1,7 +1,7 @@
 ---
 title: The Essential Manifesting Guidebook | Free Book
-date: 2024-10-19T17:35:32.904Z
-updated: 2024-10-26T20:57:07.467Z
+date: 2025-02-12T18:59:55.902Z
+updated: 2025-02-16T01:02:49.133Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a2017719a538807aba7b43ee38b584f2a17950865d83171d75822bd18146116b.jpg
@@ -169,3 +169,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a2017719a538807aba7b43ee38b584f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209862770-9780692160206-dancing-alone/"><u>Dancing Alone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863081-9780990536154-earth-etudes-for-elul/"><u>Earth Etudes for Elul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862600-9789081991056-jesus-the-untold-story/"><u>Jesus, the untold story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863178-9781999731939-love-sex-nakedness-and-the-divine/"><u>Love, Sex, Nakedness and the Divine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863095-9780995699922-reversing-the-race-to-global-destruction/"><u>Reversing the Race to Global Destruction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862880-9781789264661-the-path-leads-here/"><u>The Path Leads Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862787-9781945252341-the-sensitive-edge/"><u>The Sensitive Edge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863028-9780692164259-when-life-hits-the-fan/"><u>When Life Hits the Fan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862848-9780999480564-which-side-of-the-fence-are-you-on/"><u>Which Side Of The Fence Are You On | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

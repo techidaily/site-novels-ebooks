@@ -1,7 +1,7 @@
 ---
 title: Releasing the Creative Spirit | Free Book
-date: 2025-01-28T18:38:09.457Z
-updated: 2025-02-03T18:03:22.352Z
+date: 2025-02-09T02:43:11.089Z
+updated: 2025-02-16T01:20:28.802Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180f215e5ab49f9cb5961589040d470ab5e7.jpg
@@ -182,13 +182,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95935341-9781844097876-fighting-buddha/"><u>Fighting Buddha | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935340-9781844093922-in-case-of-spiritual-emergency/"><u>In Case of Spiritual Emergency | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935337-9781844098668-in-perfect-timing/"><u>In Perfect Timing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935338-9781844093571-the-gift-of-forgiveness/"><u>The Gift of Forgiveness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210070639-9780578643144-a-new-and-powerful-you/"><u>A New and Powerful You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210072780-9781581575545-a-season-with-the-witch-the-magic-and-mayhem-of-halloween-in-salem-massachusetts/"><u>A Season with the Witch: The Magic and Mayhem of Halloween in Salem, Massachusetts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2100754-9780974021676-healing-the-heart-soul/"><u>Healing the Heart & Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210073347-9781682682524-morning-altars-a-7-step-practice-to-nourish-your-spirit-through-nature-art-and-ritual/"><u>Morning Altars: A 7-Step Practice to Nourish Your Spirit through Nature, Art, and Ritual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210070721-9781735309422-the-inner-journey/"><u>The Inner Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210077510-9780999864654-through-the-storm/"><u>Through the Storm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210070727-9780987630612-trust-the-universe-2nd-ed/"><u>Trust the Universe (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210070646-9781913479268-wellness-magick/"><u>Wellness Magick | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

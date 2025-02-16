@@ -1,7 +1,7 @@
 ---
 title: Relax. . . You're Not Going to Die Part 2 | Free Book
-date: 2024-10-20T22:33:54.957Z
-updated: 2024-10-26T18:08:34.457Z
+date: 2025-02-10T19:18:23.862Z
+updated: 2025-02-15T21:24:34.762Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c0db5013d59d22f0765bcb6b694ccfd86051dc030d4c86c57295aebb9f3ea49c.jpg
@@ -146,3 +146,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c0db5013d59d22f0765bcb6b694ccfd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138621235-9781601633897-awaken-your-third-eye/"><u>Awaken Your Third Eye | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621239-9781601635020-the-power-of-auras/"><u>The Power of Auras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621240-9781601635013-the-power-of-chakras/"><u>The Power of Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621234-9781601634689-ufos-gods-chariots/"><u>UFOs: God's Chariots? | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

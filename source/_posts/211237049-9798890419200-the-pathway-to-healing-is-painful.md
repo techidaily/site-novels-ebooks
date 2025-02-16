@@ -1,7 +1,7 @@
 ---
 title: The Pathway to Healing Is Painful | Free Book
-date: 2024-10-24T20:40:14.823Z
-updated: 2024-10-26T23:19:11.033Z
+date: 2025-02-08T21:00:35.072Z
+updated: 2025-02-15T19:08:21.001Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2c1fecc28156f3bbab1211f2ac0170786380dc70942743d490b0f1c077a22e30.jpg
@@ -148,3 +148,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2c1fecc28156f3bbab1211f2ac01707
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209861853-9780999228418-ensoulment/"><u>Ensoulment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861743-9781948172936-laying-up-treasures-in-heaven/"><u>Laying Up Treasures In Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862249-9780648277729-love-life-and-tea/"><u>Love, Life and Tea | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862186-9780993462658-loves-story-of-why-we-are-here/"><u>Love's Story of Why We Are Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861954-9781999392116-soothsaying-tarot-and-the-mantegna-revealed/"><u>Soothsaying Tarot and the Mantegna Revealed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862007-9781732241268-the-language-of-dreams/"><u>The Language of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209861972-9781949169713-the-story-of-ada/"><u>The Story of Ada | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

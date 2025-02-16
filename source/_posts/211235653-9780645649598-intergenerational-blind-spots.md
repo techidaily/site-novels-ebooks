@@ -1,7 +1,7 @@
 ---
 title: Intergenerational Blind Spots | Free Book
-date: 2024-10-20T05:12:55.156Z
-updated: 2024-10-26T22:15:48.014Z
+date: 2025-02-09T19:58:08.741Z
+updated: 2025-02-15T20:02:28.581Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/95b8a8a8e491cbf3b79a4dfbeb4ee4aa179557cdc20bf1160b49cb6b046d50be.jpg
@@ -166,3 +166,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/95b8a8a8e491cbf3b79a4dfbeb4ee4a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209881179-9781087804743-how-to-change-the-world/"><u>How to Change the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209881139-9781734003857-i-am-healing-3rd-ed/"><u>I AM Healing (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209881195-9781087804842-the-10-laws-of-transmutation/"><u>The 10 Laws of Transmutation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209881191-9781087804859-the-14-karmic-laws-of-love/"><u>The 14 Karmic Laws of Love | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

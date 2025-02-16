@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Leo | Free Book
-date: 2024-10-26T01:42:41.867Z
-updated: 2024-10-27T04:58:17.364Z
+date: 2025-02-12T23:19:58.388Z
+updated: 2025-02-15T16:49:32.370Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6a5e59ca79a96021c8e4b4e49c50411dc60eef995caaae432c2d35b8944c7728.jpg
@@ -166,3 +166,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6a5e59ca79a96021c8e4b4e49c50411
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209660975-9781547574681-la-meprise/"><u>La méprise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209661088-9781547578115-manuale-per-la-consapevolezza-attraverso-la-meditazione-quotidiana/"><u>Manuale per la Consapevolezza Attraverso la Meditazione Quotidiana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209661021-9781547575374-megan-e-la-gita-scolastica/"><u>Megan e la Gita Scolastica | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660993-9781547573981-the-answer-for-everything/"><u>The Answer for everything | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

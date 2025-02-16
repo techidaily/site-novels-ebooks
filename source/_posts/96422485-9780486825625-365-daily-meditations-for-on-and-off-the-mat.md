@@ -1,7 +1,7 @@
 ---
 title: 365 Daily Meditations for On and Off the Mat | Free Book
-date: 2025-01-31T18:46:46.360Z
-updated: 2025-02-03T17:36:51.690Z
+date: 2025-02-09T18:00:44.707Z
+updated: 2025-02-15T21:04:12.626Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821bc4e50d1a06b1a1074b80a76bc276b28b9.jpg
@@ -169,13 +169,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fb8e08777f5f2a59ac5f1f6a377821b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126005-9781609256678-rules-for-spiritual-initiation/"><u>Rules for Spiritual Initiation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126006-9781609253011-runes-for-transformation/"><u>Runes for Transformation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126021-9781609252632-secrets-of-a-medium/"><u>Secrets of a Medium | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126016-9781609252953-the-secret-history-of-consciousness/"><u>The Secret History of Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210306659-9781401960971-dying-to-be-me/"><u>Dying to Be Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210306658-9781788177207-fk-it-revised-and-updated-edition/"><u>F**k It (Revised and Updated Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210307135-9782019459468-la-vie-avant-la-vie/"><u>La vie avant la vie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210306951-9781401967192-manifesting-your-magical-life/"><u>Manifesting Your Magical Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210307139-9782017140603-secrets-dun-guerisseur-hawaien/"><u>Secrets d'un guérisseur Hawaïen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210307131-9782017140641-tresser-les-herbes-sacrees/"><u>Tresser les herbes sacrées | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

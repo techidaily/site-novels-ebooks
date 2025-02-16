@@ -1,7 +1,7 @@
 ---
 title: Mastering Mindfulness - From Anxiety To Zen | Free Book
-date: 2024-10-24T20:32:01.681Z
-updated: 2024-10-27T00:22:42.897Z
+date: 2025-02-09T00:14:21.416Z
+updated: 2025-02-15T18:13:50.667Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbdee60872ec1d26ffd296d3a6f9d7537f9ccef6c0f75b7fec3f601055bec5c5.jpg
@@ -144,3 +144,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbdee60872ec1d26ffd296d3a6f9d75
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/185866-9781595470621-a-work-of-saturn/"><u>A Work of Saturn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1865611-9780983346647-brigit/"><u>Brigit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1865622-9781782797647-carry-the-rock/"><u>Carry the Rock | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1865624-9781782797906-crystal-prescriptions/"><u>Crystal Prescriptions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1863937-9781476617947-evidence-for-psi/"><u>Evidence for Psi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1840239-9780698401617-looking-at-mindfulness/"><u>Looking at Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1865631-9781782798347-pagan-portals-the-morrigan/"><u>Pagan Portals - The Morrigan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/186036-9781595470669-the-golden-chain-of-homer/"><u>The Golden Chain of Homer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/184065-9781595470034-the-realness-of-witchcraft-in-america/"><u>The Realness of Witchcraft in America | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

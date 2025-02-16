@@ -1,7 +1,7 @@
 ---
 title: Earth Wisdom Teachings (2nd ed.) | Free Book
-date: 2024-10-25T01:51:35.777Z
-updated: 2024-10-26T18:03:29.453Z
+date: 2025-02-11T19:54:07.244Z
+updated: 2025-02-15T20:07:59.132Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/00a736ed743c1c924ea8054e0d78bfc6ca1172424e87973288c39c52d95d7189.jpg
@@ -185,3 +185,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/00a736ed743c1c924ea8054e0d78bfc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209725765-9781633383234-an-endless-quest-for-spiritual-truth-a-practical-guide-to-everyday-spirituality/"><u>An Endless Quest for Spiritual Truth: A Practical Guide to Everyday Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723550-9781420962383-believe-in-yourself/"><u>Believe In Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723696-9781633534841-eclectic-wicca/"><u>Eclectic Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723692-9781633536746-goddess-power/"><u>Goddess Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723675-9781633535633-moon-spell-magic/"><u>Moon Spell Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723697-9781633535329-real-life-mindfulness/"><u>Real Life Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209723689-9781633532946-tea-spiration/"><u>Tea-spiration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209726088-9780806539454-the-gifts-beneath-your-anxiety/"><u>The Gifts Beneath Your Anxiety | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209726582-9780806539683-your-magickal-cat/"><u>Your Magickal Cat | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

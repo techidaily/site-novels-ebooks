@@ -1,7 +1,7 @@
 ---
 title: Illuminating Our True Nature | Free Book
-date: 2024-10-22T18:45:38.210Z
-updated: 2024-10-26T18:49:44.948Z
+date: 2025-02-08T19:17:20.990Z
+updated: 2025-02-16T01:52:20.475Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ad7fcbcad5de8c9e4d3a7c5c5bee04885ba81f7bb810007d7f034f434df136fd.jpg
@@ -224,3 +224,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ad7fcbcad5de8c9e4d3a7c5c5bee048
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209758045-9780917849800-chronicles-of-religious-science-volume-ii-1960-2012/"><u>Chronicles of Religious Science, Volume II, 1960-2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209749541-9781984826824-coming-home-to-yourself/"><u>Coming Home to Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209755029-9781787751767-compassionate-mindful-inquiry-in-therapeutic-practice/"><u>Compassionate Mindful Inquiry in Therapeutic Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209753707-9780762496167-ignite-your-light/"><u>Ignite Your Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209750872-9781578595570-lost-civilizations/"><u>Lost Civilizations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209758588-9781401958053-no-endings-only-beginnings/"><u>No Endings, Only Beginnings | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

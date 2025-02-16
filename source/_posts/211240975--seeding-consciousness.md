@@ -1,7 +1,7 @@
 ---
 title: Seeding Consciousness | Free Book
-date: 2024-10-23T22:03:04.697Z
-updated: 2024-10-26T19:46:23.745Z
+date: 2025-02-10T17:19:44.470Z
+updated: 2025-02-15T20:31:19.165Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f03af37abe29c88b5d2b71f679fa97aa457fb59886ff8d03f48f6b9957205bc5.jpg
@@ -156,3 +156,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f03af37abe29c88b5d2b71f679fa97a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209847337-9780994031730-how-will-you-be-remembered/"><u>How Will You Be Remembered? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847155-9781945894077-kundalini-yoga/"><u>Kundalini yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846908-9781911134206-quareia-the-adept/"><u>Quareia The Adept | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846905-9780995571228-zoetic-soul/"><u>Zoetic Soul | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

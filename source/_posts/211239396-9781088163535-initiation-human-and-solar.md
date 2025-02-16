@@ -1,7 +1,7 @@
 ---
 title: Initiation, Human and Solar | Free Book
-date: 2024-10-22T21:25:48.475Z
-updated: 2024-10-26T17:22:27.562Z
+date: 2025-02-08T17:47:21.387Z
+updated: 2025-02-16T00:23:50.560Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c4604d404370df1f4dc1ac364632ae402c324dc3fd238e1ae63750a167634836.jpg
@@ -134,3 +134,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c4604d404370df1f4dc1ac364632ae4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209864325-9781999630898-heart-mind-connection/"><u>Heart Mind Connection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864241-9781732552005-master-in-the-making/"><u>Master In The Making | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864298-9780979148316-new-tools-for-new-creation/"><u>New Tools for New Creation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864144-9780692184967-reiki-as-a-spiritual-practice/"><u>Reiki as a Spiritual Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209864195-9780692157671-the-way-and-the-spirit/"><u>The Way and the Spirit | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2025-01-31T17:39:44.871Z
-updated: 2025-02-03T17:03:53.030Z
+date: 2025-02-13T22:53:37.313Z
+updated: 2025-02-15T19:28:07.963Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,13 +176,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782578-9781594778414-tan-tien-chi-kung-2nd-ed/"><u>Tan Tien Chi Kung (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782581-9781620551233-the-deva-handbook/"><u>The Deva Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782576-9781594778629-the-diloggun/"><u>The Diloggún | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782577-9781620554937-the-divining-heart/"><u>The Divining Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209927246-9781646630042-conversations-with-grace/"><u>Conversations with Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209929474-9781951775131-imps-imps-and-more-whimps/"><u>Imps, Imps, and More Whimps! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209928850-9781925921878-live-fearlessly/"><u>Live Fearlessly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209925553-9781784281441-mindfulness-for-happiness/"><u>Mindfulness for Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209928853-9784375653245-the-alchemists-handbook/"><u>The Alchemists Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209927105-9781788173797-the-seven-types-of-spirit-guide/"><u>The Seven Types of Spirit Guide | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

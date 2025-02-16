@@ -1,7 +1,7 @@
 ---
 title: Opening the Akashic Records | Free Book
-date: 2025-01-29T17:21:53.656Z
-updated: 2025-02-03T16:28:20.430Z
+date: 2025-02-13T23:29:24.743Z
+updated: 2025-02-15T16:51:29.630Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c18c873800c330d46738d22f797232947cf.jpg
@@ -189,17 +189,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4908175429cb8e7a04e95e68d8b03c1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1127086-9781612831978-spirit-animals-and-the-wheel-of-life/"><u>Spirit Animals and the Wheel of Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1128023-9781609258528-the-art-of-psychic-protection/"><u>The Art of Psychic Protection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1128026-9781609258283-the-canon/"><u>The Canon | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1128029-9781609258207-the-enochian-evocation-of-dr-john-dee/"><u>The Enochian Evocation of Dr. John Dee | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127114-9781612831961-the-way-back-to-paradise/"><u>The Way Back to Paradise | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127397-9781476727042-theres-more-to-life-than-this/"><u>There's More to Life Than This | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127100-9781612830810-traveling-between-the-worlds/"><u>Traveling Between the Worlds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127115-9781612831770-weve-never-been-alone/"><u>We've Never Been Alone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210331254-9781098085773-a-journey-toward-home/"><u>A Journey Toward Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210331904-9781528767538-beyond/"><u>Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210332230-9780648893240-chakras-drugs-and-evolution/"><u>Chakras, Drugs and Evolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210330671-9781774190890-lily-of-the-valley/"><u>Lily of the Valley | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210330840-9781736737019-the-4-c-heart-curls-kinks-knots-of-my-dry-thirsty-single-soul-words-for-seasons/"><u>The 4 C Heart: Curls, Kinks, & Knots of My Dry, Thirsty Single Soul: Words for Seasons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210331964-9781954556812-the-beautiful-logic-of-astrology-your-guide-to-understanding-the-language-of-the-stars/"><u>The Beautiful Logic of Astrology, Your Guide to Understanding the Language of the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210330793-9781623176556-the-psilocybin-connection/"><u>The Psilocybin Connection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210331773-9781916886711-unlocking-psychic-potential/"><u>Unlocking Psychic Potential | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210332421-9780648952060-wisdom/"><u>Wisdom | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

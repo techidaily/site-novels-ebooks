@@ -1,7 +1,7 @@
 ---
 title: Devils, Demons, and Witchcraft | Free Book
-date: 2025-02-02T17:52:59.063Z
-updated: 2025-02-03T16:00:14.994Z
+date: 2025-02-13T01:20:19.678Z
+updated: 2025-02-16T01:51:28.649Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b594220d69c3f2aeb57f357f97bd170c524ace.jpg
@@ -164,13 +164,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d92170df15aacda2ed4d0fed08b5942
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125819-9781609251680-kids-who-see-ghosts/"><u>Kids Who See Ghosts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125834-9781609254131-learning-the-tarot/"><u>Learning the Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125829-9781609257644-the-laws-of-manifestation/"><u>The Laws of Manifestation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125838-9781609253776-the-lesser-key-of-solomon/"><u>The Lesser Key of Solomon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210298857-9781645592020-an-emotional-journey/"><u>An Emotional Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210298703-9781646705559-come-with-a-hunger-come-with-a-thirst-be-filled-to-overflow/"><u>Come with a Hunger Come with a Thirst Be Filled to Overflow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210298413-9781644682654-the-light-through-the-darkness/"><u>The Light Through The Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210298197-9781644680636-three-simple-words/"><u>Three Simple Words | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210298475-9781646705948-what-remains-behind/"><u>What Remains Behind | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

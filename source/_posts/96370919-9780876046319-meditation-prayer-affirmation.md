@@ -1,7 +1,7 @@
 ---
 title: Meditation, Prayer & Affirmation | Free Book
-date: 2025-01-31T16:26:27.440Z
-updated: 2025-02-03T17:10:16.244Z
+date: 2025-02-11T22:38:49.717Z
+updated: 2025-02-16T02:13:10.351Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43672444c33db3a86b5a800f977c6733847.jpg
@@ -142,18 +142,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f772f43aeadc2f15e5436f275cb3c43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1222100-9781583947999-aya-awakenings/"><u>Aya Awakenings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221620-9781780997933-divine-guidance/"><u>Divine Guidance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221621-9781780995397-drinking-the-four-winds/"><u>Drinking the Four Winds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221623-9781782790624-how-to-care-for-a-cancer/"><u>How to Care for a Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1222045-9781461740988-lighthouse-hauntings/"><u>Lighthouse Hauntings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1222046-9781461740995-lighthouse-horrors/"><u>Lighthouse Horrors | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221628-9781780996783-on-angels-wings/"><u>On Angels' Wings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221629-9781780995601-shaman-pathways-elen-of-the-ways/"><u>Shaman Pathways - Elen of the Ways | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221632-9781780998145-the-extraordinary-spirit-sightings-encounters-of-an-ordinary-surrey-lady/"><u>The Extraordinary Spirit Sightings & Encounters of an Ordinary Surrey Lady | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349549-9782226290946-lesprit-de-solitude/"><u>L'Esprit de solitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349528-9782226290786-la-danse-de-la-realite/"><u>La Danse de la réalité | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349494-9782226291004-le-gardien-du-feu/"><u>Le Gardien du feu | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349511-9782226294807-le-rire-du-sacre/"><u>Le Rire du sacré | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349513-9782226292049-le-temple-et-sa-symbolique/"><u>Le Temple et sa symbolique | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349493-9782226294241-metanoia/"><u>Métanoïa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349544-9782226295323-une-journee-une-vie/"><u>Une journée une vie | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

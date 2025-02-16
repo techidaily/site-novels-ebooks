@@ -1,7 +1,7 @@
 ---
 title: Real Visitors, Voices from Beyond, and Parallel Dimensions | Free Book
-date: 2025-01-29T17:45:42.302Z
-updated: 2025-02-03T17:35:24.141Z
+date: 2025-02-11T18:54:48.097Z
+updated: 2025-02-16T02:44:43.780Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd32198758cc838b07d5ec5f65ac4b997869c8f124.jpg
@@ -254,18 +254,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33b20bfabb49f8194bb999bd3219875
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96317590-9781401933487-aventuras-de-una-psiquica/"><u>Aventuras De Una Psíquica | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317597-9781401938963-entangled-in-darkness/"><u>Entangled In Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317607-9781401946975-home-in-harmony/"><u>Home in Harmony | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317603-9781401932862-spiritual-cinema/"><u>Spiritual Cinema | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317589-9781401932992-the-journey-home/"><u>The Journey Home | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317599-9781401935375-the-mindful-manifesto/"><u>The Mindful Manifesto | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317579-9781401931957-the-secret-of-instant-healing/"><u>The Secret of Instant Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317571-9781401930868-the-survival-of-the-soul/"><u>The Survival of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317591-9781401933357-yoga-power-and-spirit/"><u>Yoga, Power, and Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185533-9781087934754-a-child-in-search-of-god-truth/"><u>A Child in Search of God & Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184748-9781950241804-be-the-good/"><u>Be the Good | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184741-9781735983516-stealing-fire-from-the-gods/"><u>Stealing Fire From The Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184979-9781880765760-the-free-will-zone/"><u>The Free Will Zone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185662-9781631598487-the-power-of-breathwork/"><u>The Power of Breathwork | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184613-9780648652434-the-simplified-book-of-change/"><u>The Simplified book of Change | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184805-9781087934273-who-do-i-become-when-i-am-no-longer-me/"><u>Who Do I Become When I Am No Longer Me? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

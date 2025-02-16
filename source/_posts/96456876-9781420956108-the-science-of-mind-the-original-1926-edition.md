@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (The Original 1926 Edition) | Free Book
-date: 2025-01-31T18:41:32.287Z
-updated: 2025-02-03T18:44:21.861Z
+date: 2025-02-08T21:15:43.852Z
+updated: 2025-02-16T00:25:11.242Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221b9ef5632d1d06a0af0360a6dcf5485a4c.jpg
@@ -156,15 +156,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8489f70f17fb5638d7991b305940221
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1021691-9781936012527-emerson-and-the-dream-of-america/"><u>Emerson and the Dream of America | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1025636-9781250035943-moral-immoral-amoral/"><u>Moral, Immoral, Amoral | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1023260-9781471112379-the-afterlife-is-real/"><u>The Afterlife is Real | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1013577-9781448164653-the-book-of-the-eclipse/"><u>The Book Of The Eclipse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1013589-9781446458686-the-celtic-shaman/"><u>The Celtic Shaman | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1010638-9781780996370-the-transformational-truth-of-tarot/"><u>The Transformational Truth of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210268022-9781098073480-a-legacy-of-faith/"><u>A Legacy of Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210268271-9781777207915-a-path-of-divine-encounters/"><u>A Path of Divine Encounters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210268055-9781098054410-designed-illusions/"><u>Designed Illusions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210267190-9781734724134-earth-changes/"><u>Earth Changes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210267153-9781734695823-energy-healing-and-chakras/"><u>Energy Healing and Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210267439-9781914085857-il-potere-nella-verita/"><u>Il Potere nella Verità | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210268060-9781098065669-laughing-my-way-to-a-better-life/"><u>Laughing My Way to a Better Life! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210267402-9781737040309-modern-day-shaman/"><u>Modern Day Shaman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210267309-9781528767712-on-the-threshold-of-a-new-world-of-thought-an-examination-of-the-phenomena-of-spiritualism/"><u>On The Threshold of a New World of Thought - An Examination of the Phenomena of Spiritualism | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

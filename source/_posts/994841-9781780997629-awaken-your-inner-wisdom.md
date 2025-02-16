@@ -1,7 +1,7 @@
 ---
 title: Awaken Your Inner Wisdom | Free Book
-date: 2025-01-30T17:36:19.058Z
-updated: 2025-02-03T16:45:48.111Z
+date: 2025-02-09T17:36:58.236Z
+updated: 2025-02-16T00:47:27.403Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bff765ca9a59aba5794836b3a96b2b0e315.jpg
@@ -136,15 +136,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782514-9781591438533-affinity/"><u>Affinity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782508-9781591438069-sacred-medicine-of-bee-butterfly-earthworm-and-spider/"><u>Sacred Medicine of Bee, Butterfly, Earthworm, and Spider | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782510-9781591437529-the-ancient-giants-who-ruled-america/"><u>The Ancient Giants Who Ruled America | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782513-9781591432722-the-angelic-origins-of-the-soul/"><u>The Angelic Origins of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782512-9781591432302-the-anunnaki-chronicles/"><u>The Anunnaki Chronicles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782511-9781591432388-trance-journeys-of-the-hunter-gatherers/"><u>Trance Journeys of the Hunter-Gatherers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209915658-9781761031533-astral-projection/"><u>Astral Projection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209915655-9781761031540-crystal-healing/"><u>Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209915084-9781794825390-kisah-hikayat-perjalanan-ruh-umat-manusia-di-alam-barzah-edisi-bahasa-inggris-standar-version/"><u>Kisah Hikayat Perjalanan Ruh Umat Manusia Di Alam Barzah Edisi Bahasa Inggris Standar Version | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209915657-9781761031519-psychic-development/"><u>Psychic Development | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209914931-9781734393217-signs-surround-you/"><u>Signs Surround You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209915656-9781761031557-spirit-guides/"><u>Spirit Guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209915611-9781950189182-the-book-of-messages/"><u>The Book of Messages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209915598-9781420965322-the-secret-of-the-ages/"><u>The Secret of the Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209915081-9781734302295-vipassana/"><u>Vipassana | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

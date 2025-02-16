@@ -1,7 +1,7 @@
 ---
 title: Eye of the Seeress / Voice of the Poet | Free Book
-date: 2024-10-25T19:40:43.265Z
-updated: 2024-10-27T01:09:35.415Z
+date: 2025-02-13T23:48:23.038Z
+updated: 2025-02-15T17:04:35.364Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/212ec7c4027dd167c146e256c6988f9abc524d4341f190d3677858d85b366e9d.jpg
@@ -134,3 +134,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/212ec7c4027dd167c146e256c6988f9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209533140-9781781803790-an-introduction-to-mediumship/"><u>An Introduction to Mediumship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209532196-9781789504279-astrology-in-the-workplace/"><u>Astrology in the Workplace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209528929-9780876049686-experiments-in-a-search-for-god/"><u>Experiments in a Search For God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209531337-9781785358449-haunted/"><u>Haunted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209531334-9781785357671-kitchen-witchcraft/"><u>Kitchen Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209530510-9780892546176-magical-uses-for-magnets/"><u>Magical Uses for Magnets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209531435-9782824631233-percevoir-linvisible/"><u>Percevoir l'invisible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209531336-9781785358173-you-are-not-your-thoughts/"><u>You Are Not Your Thoughts | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Psilocybin Mushroom Handbook | Free Book
-date: 2025-01-30T17:13:21.560Z
-updated: 2025-02-03T18:03:50.657Z
+date: 2025-02-09T21:22:47.960Z
+updated: 2025-02-15T16:11:49.395Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac5905c003b93604d1a060d7995e91066a2227.jpg
@@ -170,17 +170,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/83e2d5889643017a0b5a23166dac590
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96464955-9781611250268-a-shamans-tale/"><u>A Shaman's Tale | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96465819-9781614481997-courage-for-the-rest-of-us/"><u>Courage For The Rest Of US | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96465695-9781600378836-encouragementors/"><u>EncourageMentors | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96464936-9781615931507-energy-warriors/"><u>Energy Warriors | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96465792-9781614480785-escape-from-zoomanity/"><u>Escape From Zoomanity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96464939-9781615931521-ilahinoor/"><u>Ilahinoor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96466864-9781586380960-take-your-time-2nd-ed/"><u>Take Your Time (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96466748-9781683507307-the-destiny-roadmap/"><u>The Destiny Roadmap | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210284-9781647866617-a-quantum-healing-expression/"><u>A Quantum Healing Expression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210209538-9781582708003-miracles-and-other-realities/"><u>Miracles and Other Realities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210209405-9781071581094-passe-backstage-para-o-outro-lado/"><u>Passe Backstage Para O Outro Lado | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210209539-9781582708379-stop-fixing-yourself/"><u>Stop Fixing Yourself | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

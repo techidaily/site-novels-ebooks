@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2025-01-30T16:46:10.788Z
-updated: 2025-02-03T16:44:30.331Z
+date: 2025-02-08T19:09:14.002Z
+updated: 2025-02-16T00:27:11.919Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,17 +183,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96370916-9780876046463-dreams-visions/"><u>Dreams & Visions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370921-9780876047507-earth-changes/"><u>Earth Changes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370923-9780876046265-edgar-cayce-and-the-kabbalah/"><u>Edgar Cayce and the Kabbalah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370922-9780876047088-energy-medicine/"><u>Energy Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370911-9780876046814-make-up-your-mind-to-be-happy/"><u>Make Up Your Mind to Be Happy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370919-9780876046319-meditation-prayer-affirmation/"><u>Meditation, Prayer & Affirmation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370918-9780876046791-planetary-influences-sojourns/"><u>Planetary Influences & Sojourns | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370920-9780876046777-we-live-forever/"><u>We Live Forever | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197152-9781631593390-5-minute-mindfulness-walking/"><u>5-Minute Mindfulness: Walking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197149-9781781318133-crystal-fix/"><u>Crystal Fix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197108-9780760367001-life-unplugged/"><u>Life Unplugged | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197145-9780711253452-mindful-thoughts-at-home/"><u>Mindful Thoughts at Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197069-9781782407140-secrets-of-shiatsu/"><u>Secrets of Shiatsu | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197066-9781631595370-the-ultimate-guide-to-chakras/"><u>The Ultimate Guide to Chakras | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

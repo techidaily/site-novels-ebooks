@@ -1,7 +1,7 @@
 ---
 title: Psychedelic Medicine at the End of Life | Free Book
-date: 2024-10-23T04:45:50.433Z
-updated: 2024-10-26T22:19:59.147Z
+date: 2025-02-08T21:18:37.117Z
+updated: 2025-02-16T02:24:47.645Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2eb5dc2b41bf01be48d52b9d5ceb19c240a86b6f1d74b546ef4ee01da4679779.jpg
@@ -154,3 +154,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2eb5dc2b41bf01be48d52b9d5ceb19c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209849577-9781946005137-campo-de-entrenamiento-budista/"><u>CAMPO DE ENTRENAMIENTO BUDISTA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849493-9780988986619-how-to-predict-the-future/"><u>How to Predict the Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849122-9780995735132-laberintos-a-w/"><u>Laberintos A-Ω | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849164-9781640075597-singing-into-bone/"><u>Singing into Bone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849639-9780473369347-the-new-mysticism/"><u>The New Mysticism | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

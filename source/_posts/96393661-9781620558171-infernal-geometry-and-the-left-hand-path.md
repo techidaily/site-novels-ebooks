@@ -1,7 +1,7 @@
 ---
 title: Infernal Geometry and the Left-Hand Path | Free Book
-date: 2025-01-30T17:21:35.749Z
-updated: 2025-02-03T18:27:37.104Z
+date: 2025-02-11T23:39:03.398Z
+updated: 2025-02-15T21:38:58.544Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617db72b94aabd32851ac04c798b6df570c3.jpg
@@ -203,14 +203,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43ed6c926aeb46794ad4dbd08e02617
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1128031-9781609257842-gay-witchcraft/"><u>Gay Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1128035-9781609257736-mastering-the-toltec-way/"><u>Mastering the Toltec Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1128040-9781609257668-sai-baba/"><u>Sai Baba | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1128046-9781609258290-tarot-decoded/"><u>Tarot Decoded | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1128034-9781609258511-the-mark-of-the-beast/"><u>The Mark of the Beast | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210332510-9781401965037-8-secrets-to-powerful-manifesting/"><u>8 Secrets to Powerful Manifesting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333040-9781956161007-conversations-with-g/"><u>Conversations with G | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210332743-9780525508212-dont-worry/"><u>Don't Worry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210333058-9788792633729-read-like-the-devil/"><u>Read Like the Devil | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210332467-9780578949451-spirituality-instruction-manual/"><u>Spirituality Instruction Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210332508-9781952692208-we-were-made-for-these-times/"><u>We Were Made for These Times | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

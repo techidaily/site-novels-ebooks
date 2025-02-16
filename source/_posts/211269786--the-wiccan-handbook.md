@@ -1,7 +1,7 @@
 ---
 title: The Wiccan Handbook | Free Book
-date: 2024-10-21T04:16:59.901Z
-updated: 2024-10-26T18:11:36.680Z
+date: 2025-02-12T16:31:52.295Z
+updated: 2025-02-15T18:36:49.349Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/976a70d3209ce22b7f31791b4badb298f8f71f48b7b2e8d207af668d9d7aa460.jpg
@@ -150,3 +150,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/976a70d3209ce22b7f31791b4badb29
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1433500-9781136602696-a-companion-to-yi-jing-numerology-and-cosmology/"><u>A Companion to Yi jing Numerology and Cosmology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1441553--clairvoyance-and-occult-powers/"><u>Clairvoyance and Occult Powers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1441551-9781776527311-dynamic-thought/"><u>Dynamic Thought | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1460725-9781938289224-living-a-life-of-awareness/"><u>Living a Life of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1441570-9781776527694-magic-and-witchcraft/"><u>Magic and Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1429457-9781608827503-mindfulness-for-prolonged-grief/"><u>Mindfulness for Prolonged Grief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1441422-9781938289200-the-grid/"><u>The Grid | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1438047-9781608827817-the-tao-of-stress/"><u>The Tao of Stress | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

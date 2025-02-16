@@ -1,7 +1,7 @@
 ---
 title: The Poison Path Grimoire | Free Book
-date: 2024-10-23T01:22:50.899Z
-updated: 2024-10-27T05:41:39.823Z
+date: 2025-02-08T23:51:27.612Z
+updated: 2025-02-16T00:07:52.703Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/06db6fe888863c984b010ded015c4cfbcf3afde48ea865dbd84ffa81a1f7d1fc.jpg
@@ -156,3 +156,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/06db6fe888863c984b010ded015c4cf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209849943-9781945558214-healing-toxic-habits/"><u>Healing Toxic Habits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849901-9781947151024-love-is-the-answer/"><u>Love is the Answer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849996-9780987614315-lover-relationships-and-karma/"><u>Lover Relationships and Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209849870-9781945558504-open-your-gifts/"><u>Open Your G.I.F.T.S. | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

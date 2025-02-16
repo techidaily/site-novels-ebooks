@@ -1,7 +1,7 @@
 ---
 title: The Complete Prophecies of Nostradamus | Free Book
-date: 2025-01-28T16:01:43.451Z
-updated: 2025-02-03T18:41:44.281Z
+date: 2025-02-13T22:48:31.422Z
+updated: 2025-02-15T19:47:29.155Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2b76dc772c3108c75ac53f739309598ae7.jpg
@@ -141,18 +141,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95955303-9780008302016-aquarius-2019-your-personal-horoscope/"><u>Aquarius 2019: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95960124-9781608685356-chakra-healing-for-vibrant-energy/"><u>Chakra Healing for Vibrant Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96027869-9780525505341-inner-witch/"><u>Inner Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95955304-9780008302023-pisces-2019-your-personal-horoscope/"><u>Pisces 2019: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95956315-9781614173809-soul-survivor/"><u>Soul Survivor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95955630-9780525560319-tao-te-ching/"><u>Tao Te Ching | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95959699-9781788884457-the-nazis-and-the-occult/"><u>The Nazis and the Occult | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95958909-9781623172442-thus-spoke-the-plant/"><u>Thus Spoke the Plant | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95958876-9781984800060-yoga-and-the-quest-for-the-true-self/"><u>Yoga and the Quest for the True Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102941-9781071558072-guide-de-guerison-et-de-formation-de-lempathe/"><u>Guide de Guérison et de Formation de L’empathe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102987-9781071555552-le-jardin-de-megan/"><u>Le Jardin de Megan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103018-9781071554821-megan-e-il-ciclista/"><u>Megan e il ciclista | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102919-9781071554289-megan-va-a-navegar-en-yate/"><u>Megan va a navegar en Yate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103035-9781071558904-megans-tuin/"><u>Megan's Tuin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103152-9781071555194-megans-skolresa/"><u>Megans skolresa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210103084--voices-from-beyond/"><u>Voices from Beyond | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

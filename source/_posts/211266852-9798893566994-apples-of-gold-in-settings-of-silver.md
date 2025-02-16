@@ -1,7 +1,7 @@
 ---
 title: Apples of Gold in Settings of Silver | Free Book
-date: 2024-10-21T03:21:35.974Z
-updated: 2024-10-26T20:28:34.413Z
+date: 2025-02-12T17:28:39.505Z
+updated: 2025-02-15T18:54:18.626Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/93c80fdcd9bf7da4f48db04f4aff37b9fe16a5889a0e4b45ff9f876cbce8513c.jpg
@@ -144,3 +144,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/93c80fdcd9bf7da4f48db04f4aff37b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138621378-9781601639745-ghosts-of-war/"><u>Ghosts of War | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621381-9781601639608-lore-of-the-ghost/"><u>Lore of the Ghost | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621380-9781601639585-magickal-connections/"><u>Magickal Connections | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621371-9781601637345-the-autism-prophecies/"><u>The Autism Prophecies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138622035-9781608685578-the-jewel-of-abundance/"><u>The Jewel of Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621373-9781601633781-the-power-of-angel-medicine/"><u>The Power of Angel Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621374-9781601634672-the-power-of-angels/"><u>The Power of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621372-9781601637093-theres-something-under-the-bed/"><u>There's Something Under the Bed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621385-9781601639240-zombies/"><u>Zombies | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Los secretos de la reencarnación | Free Book
-date: 2025-01-29T18:36:16.872Z
-updated: 2025-02-03T16:26:19.689Z
+date: 2025-02-09T23:33:56.335Z
+updated: 2025-02-15T21:44:27.666Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/879d60b7e0e4edc103dce810f11773e6b8514a45fa104a7b7614fc926cdba03c.jpg
@@ -154,13 +154,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/879d60b7e0e4edc103dce810f11773e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782564-9781591432463-advanced-autogenic-training-and-primal-awareness/"><u>Advanced Autogenic Training and Primal Awareness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782566-9781591438830-on-the-toltec-path/"><u>On the Toltec Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782563-9781591438588-rituals-and-practices-with-the-motherpeace-tarot-2nd-ed/"><u>Rituals and Practices with the Motherpeace Tarot (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782565-9781591439721-the-ecstatic-experience/"><u>The Ecstatic Experience | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209921183-9781581771824-108-teachings-the-path-to-the-true-self/"><u>108 Teachings: The Path to the True Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209921411-9781633484115-a-more-spiritual-life/"><u>A More Spiritual Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209921773-9781119594154-astrology-for-dummies-3rd-ed/"><u>Astrology For Dummies (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209921108-9781446359235-everyday-magic/"><u>Everyday Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209921216-9781119641605-mindfulness-for-dummies-3rd-ed/"><u>Mindfulness For Dummies (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209923661-9781786784414-positively-wealthy/"><u>Positively Wealthy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209921126-9781446358184-spells-and-how-they-work/"><u>Spells and How They Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209922097-9781925952681-the-book-of-jonathon-and-the-book-of-eron/"><u>The Book of Jonathon and The Book of Eron | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209921119-9781446358122-what-witches-do/"><u>What Witches Do | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Her Assignment, My Identity, Our Curse, | Free Book
-date: 2024-10-21T18:11:40.722Z
-updated: 2024-10-27T06:01:11.978Z
+date: 2025-02-12T22:26:58.478Z
+updated: 2025-02-15T23:12:18.869Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/de5a6c4b0f2c72d52a19a3f5f9e84057d0ab889d127c1335758af39abce8a23e.jpg
@@ -162,3 +162,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/de5a6c4b0f2c72d52a19a3f5f9e8405
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209801183-9781789042351-abide-as-that/"><u>Abide As That | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209800544-9781609250126-crones-dont-whine/"><u>Crones Don't Whine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209801184-9781789041859-diary-of-a-death-doula/"><u>Diary of a Death Doula | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209804322-9781465498861-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209804484-9781608936700-new-england-ufos/"><u>New England UFOs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209800563-9781609251161-stepping-stones/"><u>Stepping Stones | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209803952-9780349425634-the-little-book-of-moon-magic/"><u>The Little Book of Moon Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209801041-9781250236647-the-power-of-your-subconscious-mind-the-complete-original-edition/"><u>The Power of Your Subconscious Mind: The Complete Original Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209801182-9781789042443-true-magic/"><u>True Magic | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

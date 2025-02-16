@@ -1,7 +1,7 @@
 ---
 title: You and life on Planet Earth | Free Book
-date: 2024-10-19T22:22:16.367Z
-updated: 2024-10-26T23:31:49.913Z
+date: 2025-02-13T21:21:42.994Z
+updated: 2025-02-15T18:53:59.930Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75e8431402e417026663e1089345a6f91b7c55440089831c19ae6cd3a7b3c941.jpg
@@ -137,3 +137,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75e8431402e417026663e1089345a6f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209844336-9780692747643-getting-unstuck/"><u>Getting unSTUCK | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844042-9781945026010-god-is-in-the-little-things/"><u>God Is In The Little Things | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844243-9781911159018-life-within-the-entropy-paradigm/"><u>Life Within the Entropy Paradigm: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209843857-9789186613129-sensitelligent-a-guide-to-life/"><u>Sensitelligent - a guide to Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844547-9781773021225-tormented-by-ghosts/"><u>Tormented By Ghosts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844124-9780994591616-truth-connections/"><u>TRUTH CONNECTIONS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844240-9780972749381-your-immortal-self/"><u>Your Immortal Self | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

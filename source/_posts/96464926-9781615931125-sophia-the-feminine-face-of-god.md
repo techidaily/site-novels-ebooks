@@ -1,7 +1,7 @@
 ---
 title: Sophia - The Feminine Face of God | Free Book
-date: 2025-01-30T16:45:41.591Z
-updated: 2025-02-03T16:01:34.832Z
+date: 2025-02-12T20:02:57.190Z
+updated: 2025-02-15T21:33:25.113Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945f25bb980ec8e95a46b99d342e1e1cc99c.jpg
@@ -134,16 +134,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1040835-9780307828606-dreamland/"><u>Dreamland | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1036966-9780962929557-emotional-clearing/"><u>Emotional Clearing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1036380-9781476727172-muchas-vidas-muchos-sabios-many-lives-many-masters/"><u>Muchas Vidas, Muchos Sabios (Many Lives, Many Masters) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1035238-9780857010681-shamanism-and-spirituality-in-therapeutic-practice/"><u>Shamanism and Spirituality in Therapeutic Practice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1032817--the-little-book-of-everyday-miracles/"><u>The Little Book of Everyday Miracles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1036967-9781780993041-the-meaning/"><u>The Meaning | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1037524-9780786490639-the-thought-reader-craze/"><u>The Thought Reader Craze | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210269999-9781071594049-bible-de-meditation-quotidienne/"><u>Bible de méditation quotidienne | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270023-9781071543986-biblia-de-meditacion-diaria/"><u>Biblia de Meditación Diaria | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210269968-9781071592656-bonecas-mascotes-eslavas/"><u>Bonecas mascotes eslavas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270075-9781071594551-come-realizzare-i-vostri-sogni-e-obiettivi/"><u>Come Realizzare i Vostri Sogni e Obiettivi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210269719-9782019459147-et-si-cela-vous-arrivait/"><u>Et si cela vous arrivait ? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270009-9781071594056-meditation-fur-anfanger/"><u>Meditation für Anfänger | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270022-9781071593196-other-me/"><u>Other Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210269717-9782017168881-psychic-witch/"><u>Psychic Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210270113-9781071595633-secondo-io/"><u>Secondo IO | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

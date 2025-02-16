@@ -1,7 +1,7 @@
 ---
 title: The Return of Planet Sedna | Free Book
-date: 2025-02-01T17:04:47.047Z
-updated: 2025-02-03T18:52:02.695Z
+date: 2025-02-08T22:09:39.370Z
+updated: 2025-02-15T20:43:12.227Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097034f00da1565852194611324274a6943f.jpg
@@ -205,17 +205,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7455ade565b58c13f2fe3452182c097
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1155124-9781608681389-a-womans-book-of-rituals-and-celebrations/"><u>A Woman's Book of Rituals and Celebrations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1159253-9781583946565-awaken-your-genius/"><u>Awaken Your Genius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1155125-9781608682133-circle-of-stones/"><u>Circle of Stones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154586-9781577313564-path-of-empowerment/"><u>Path of Empowerment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154592-9781577313434-practicing-the-power-of-now/"><u>Practicing the Power of Now | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154593-9781608681358-practicing-the-presence-of-the-goddess/"><u>Practicing the Presence of the Goddess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1157615-9781780996004-tarot-for-grownups/"><u>Tarot for Grownups | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1155122-9781608682089-the-christmas-house/"><u>The Christmas House | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345191-9781940837581-a-taste-of-india/"><u>A Taste of India | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345999-9780744053517-alchemy/"><u>Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345130-9781940837604-blessings/"><u>Blessings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345647-9781737514916-faith-food-art/"><u>Faith, Food & Art | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345368-9781401965501-happy-days/"><u>Happy Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345135-9781940837659-heroes-saints-and-yogis/"><u>Heroes, Saints, and Yogis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344852-9781633412361-hoodoo-your-love/"><u>Hoodoo Your Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345138-9781940837710-merging-with-the-infinite/"><u>Merging with the Infinite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345127-9781934532485-the-21-stages-of-meditation/"><u>The 21 Stages of Meditation | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

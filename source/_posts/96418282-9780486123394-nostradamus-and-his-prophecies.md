@@ -1,7 +1,7 @@
 ---
 title: Nostradamus and His Prophecies | Free Book
-date: 2025-01-30T17:43:39.759Z
-updated: 2025-02-03T16:46:00.738Z
+date: 2025-02-13T02:42:31.915Z
+updated: 2025-02-16T02:34:29.350Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d6d9dc24ed6e735811cdf23ed9ad591af1.jpg
@@ -151,14 +151,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bed15b44f0a090c6a582ee18feff83d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125800-9781609252304-intuition/"><u>Intuition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125801-9781609251352-intuitive-living/"><u>Intuitive Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125805-9781609255725-john-dees-five-books-of-mystery/"><u>John Dee's Five Books of Mystery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125817-9781609250751-keywords-for-the-crowley-tarot/"><u>Keywords for the Crowley Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125818-9781609254209-the-ki-process/"><u>The Ki Process | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297891-9781645593300-a-quote-of-evidence/"><u>A Quote of Evidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297280-9781098029173-dreams-of-a-layman/"><u>Dreams of a Layman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297245-9781641149419-energy-of-love/"><u>Energy Of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297895-9781636300160-how-to-have-the-favor-of-god/"><u>How to Have the Favor of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297335-9781640792920-revelations-of-a-real-man-or-woman/"><u>Revelations of A Real Man (or Woman) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297364-9781644586051-she-wasnt-just-a-kitty/"><u>She Wasn't Just A Kitty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297715-9781644684733-the-replacement-theory-the-power-of-pain-and-prayer/"><u>The Replacement Theory: The Power of Pain and Prayer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210298061-9781644680902-who-am-i/"><u>Who Am I? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297535-9781990346033-eshyo-odin-spravochnik-ce-5/"><u>ЕЩЁ ОДИН СПРАВОЧНИК CE-5 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

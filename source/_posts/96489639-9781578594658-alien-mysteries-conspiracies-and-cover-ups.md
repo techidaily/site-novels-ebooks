@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2025-01-29T17:13:58.985Z
-updated: 2025-02-03T16:01:42.137Z
+date: 2025-02-13T02:28:33.546Z
+updated: 2025-02-15T21:26:17.553Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b2339f730f60c3217130eda9a6447c9d6624.jpg
@@ -192,16 +192,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a07d3282bb1167c7a9ec3364718b23
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96317730-9781401929534-loyalty-to-your-soul/"><u>Loyalty to Your Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317729-9781401924874-return-to-the-sacred/"><u>Return to the Sacred | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317723-9781401921422-sara-book-3/"><u>Sara, Book 3 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317715-9781401922535-sylvia-brownes-book-of-angels/"><u>Sylvia Browne's Book of Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317725-9781401922474-the-amazing-power-of-deliberate-intent/"><u>The Amazing Power of Deliberate Intent | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317732-9781401928681-the-little-book-of-big-promises/"><u>The Little Book of Big Promises | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317720-9781401926724-the-proof/"><u>The Proof | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188150-9781908421449-heaven-and-earth/"><u>Heaven and Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188163-9781953449221-new-moon-rituals-for-entrepreneurs-2021/"><u>New Moon rituals for Entrepreneurs (2021) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188057-9781649520982-praying-in-the-safe-room/"><u>Praying in the Safe Room | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188013-9781641845007-shine/"><u>Shine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188154-9781953449238-star-powered-brand/"><u>Star-Powered Brand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210188119-9781788175463-why-woo-woo-works/"><u>Why Woo-Woo Works | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

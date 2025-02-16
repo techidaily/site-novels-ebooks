@@ -1,7 +1,7 @@
 ---
 title: "Shamanism: The Book of Journeys | Free Book"
-date: 2025-01-27T17:56:45.101Z
-updated: 2025-02-03T18:03:46.115Z
+date: 2025-02-14T01:19:02.880Z
+updated: 2025-02-16T02:21:41.820Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753e50554b1e161ed3ed46475c2b066f5851.jpg
@@ -141,15 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95783108-9781594777295-catastrofobia/"><u>Catastrofobia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783112-9781594778193-el-regreso-de-los-ninos-de-la-luz/"><u>El regreso de los niños de la luz | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783109-9781620554678-los-diarios-del-acido/"><u>Los diarios del ácido | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783106-9781620556634-the-new-psychedelic-revolution/"><u>The New Psychedelic Revolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783100-9781620551424-the-new-science-of-psychedelics/"><u>The New Science of Psychedelics | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783103-9781594777073-the-presence-of-the-past-4th-ed/"><u>The Presence of the Past (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983796-9781644111444-crystal-protection-from-5g-and-emf-pollution-2nd-ed/"><u>Crystal Protection from 5G and EMF Pollution (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983963-9781771862219-free-of-incurable-cancer/"><u>Free of 'incurable' Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209987732-9781538754139-life-with-the-afterlife/"><u>Life with the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209984282-9781734770612-mind-body-home-3rd-ed/"><u>Mind Body Home (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209988338-9781641604499-the-power-of-hex/"><u>The Power of Hex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209984139-9781646540419-things-to-think-about/"><u>Things To Think About | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209984323-9781761033209-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209987490-9781734574111-vision-quest/"><u>Vision Quest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983783-9781644110812-when-i-was-someone-else/"><u>When I Was Someone Else | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

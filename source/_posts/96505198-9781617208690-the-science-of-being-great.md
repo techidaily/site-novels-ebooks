@@ -1,7 +1,7 @@
 ---
 title: The Science of Being Great | Free Book
-date: 2025-02-01T16:55:28.150Z
-updated: 2025-02-03T16:21:23.902Z
+date: 2025-02-13T00:35:04.705Z
+updated: 2025-02-16T02:38:00.845Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb6500ae5a766e98e9b9809808c4679da69.jpg
@@ -139,16 +139,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95955296-9780008301941-cancer-2019-your-personal-horoscope/"><u>Cancer 2019: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95955302-9780008302009-capricorn-2019-your-personal-horoscope/"><u>Capricorn 2019: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95955295-9780008301934-gemini-2019-your-personal-horoscope/"><u>Gemini 2019: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95955297-9780008301958-leo-2019-your-personal-horoscope/"><u>Leo 2019: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95955299-9780008301972-libra-2019-your-personal-horoscope/"><u>Libra 2019: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95955301-9780008301996-sagittarius-2019-your-personal-horoscope/"><u>Sagittarius 2019: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95955300-9780008301989-scorpio-2019-your-personal-horoscope/"><u>Scorpio 2019: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102657-9781071553459-40-dosis-de-sabiduria/"><u>40 Dosis de Sabiduría | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102639-9781071552308-journal-de-meditation-pour-une-reflexion-quotidienne/"><u>Journal de méditation pour une réflexion quotidienne | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102596-9781071553626-meditazione-per-principianti/"><u>Meditazione per Principianti | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102609-9781071557211-megan-en-de-oude-dame/"><u>Megan en de Oude Dame | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102822-9781071558683-mindfulness-para-gestantes/"><u>Mindfulness para gestantes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102823-9781071557112-my-last-glass/"><u>My Last Glass | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102692-9781071553961-pase-entre-bastidores-al-otro-lado-charlas-con-el-mas-alla-con-jennifer-shaffer-segunda-parte/"><u>Pase entre bastidores al otro lado: Charlas con el más allá con Jennifer Shaffer, Segunda parte. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102840--prohibitted-knowledge/"><u>Prohibitted Knowledge | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102532-9781786784858-sitting-comfortably/"><u>Sitting Comfortably | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

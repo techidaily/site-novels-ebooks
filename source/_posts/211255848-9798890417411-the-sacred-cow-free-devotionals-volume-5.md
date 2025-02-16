@@ -1,7 +1,7 @@
 ---
 title: The Sacred Cow Free Devotionals Volume 5 | Free Book
-date: 2024-10-22T03:31:25.513Z
-updated: 2024-10-26T16:49:47.278Z
+date: 2025-02-13T16:42:32.740Z
+updated: 2025-02-15T19:39:17.722Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6cc02b725c169bc2c82d4bd209dc883e1fb87493da6a9f0b4543254bc8dbddaf.jpg
@@ -154,3 +154,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6cc02b725c169bc2c82d4bd209dc883
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2039175-9781782798538-a-kitchen-witchs-world-of-magical-food/"><u>A Kitchen Witch's World of Magical Food | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2048718-9781634240024-a-sorcerers-apprentice/"><u>A Sorcerer's Apprentice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2039176-9781782793373-angel-healing-alchemy-how-to-begin/"><u>Angel Healing & Alchemy – How To Begin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2039178-9781785350146-i-know-how-to-live-i-know-how-to-die/"><u>I Know How To Live, I Know How To Die | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2052253-9780553419504-life-between-heaven-and-earth/"><u>Life Between Heaven and Earth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2041962-9781782799832-tours-and-cures-of-a-lightsoldier/"><u>Tours and Cures of a Lightsoldier | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

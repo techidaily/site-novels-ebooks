@@ -1,7 +1,7 @@
 ---
 title: Luz que consuela a los afligidos | Free Book
-date: 2024-10-20T00:53:08.400Z
-updated: 2024-10-26T21:11:17.419Z
+date: 2025-02-09T20:25:38.439Z
+updated: 2025-02-15T18:21:50.542Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8468438f4456010b860ae1513f3e16f66b82b4337aab6ba9b74f4062112d9d3b.jpg
@@ -161,3 +161,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8468438f4456010b860ae1513f3e16f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209860142-9780998184210-astrological-predictions-for-the-age-of-light/"><u>Astrological Predictions for the Age of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860269-9780994319210-one-path-many-lights/"><u>One Path, Many Lights | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860285-9780994606211-soul-regression-therapy-past-life-regression-and-between-life-regression-healing-current-life-wounds-and-trauma/"><u>Soul Regression Therapy - Past Life Regression and Between Life Regression, Healing Current Life Wounds and Trauma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860012-9781732030008-unbox-yourself/"><u>Unbox Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209860052-9780648308713-wtf/"><u>WTF | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209859932-9781732044715-your-return-to-freedom/"><u>Your Return to Freedom | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

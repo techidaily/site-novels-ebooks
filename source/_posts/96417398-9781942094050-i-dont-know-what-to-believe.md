@@ -1,7 +1,7 @@
 ---
 title: I Don't Know What to Believe | Free Book
-date: 2025-02-02T18:48:58.167Z
-updated: 2025-02-03T16:42:49.252Z
+date: 2025-02-10T17:27:53.741Z
+updated: 2025-02-16T01:56:06.889Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152bb6c16e86aeec1f648f85b672402b361fa.jpg
@@ -205,17 +205,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1908cc47bbf0ad72e5f0571a7bc152b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1124242-9781619400320-materialized-apparitions/"><u>Materialized Apparitions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124246-9781619400061-mrs-piper-and-the-society-for-psychical-research/"><u>Mrs. Piper and the Society for Psychical Research | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124254-9781619400412-psychic-investigations-in-early-america/"><u>Psychic Investigations in Early America | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124255-9781619400962-psychic-phenomena-the-appearance-of-light/"><u>Psychic Phenomena: The Appearance of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124256-9781619400665-psychic-phenomena-the-movement-of-objects/"><u>Psychic Phenomena: The Movement of Objects | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124257-9781619400856-psychic-phenomena-the-production-of-sound/"><u>Psychic Phenomena: The Production of Sound | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124258-9781619400160-psychometric-portraiture-of-the-victorian-era/"><u>Psychometric Portraiture of the Victorian Era | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124238-9781619400993-the-knights-and-ladies-of-the-round-table/"><u>The Knights and Ladies of the Round Table | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290245-9781734920956-feminine-archetypes/"><u>Feminine Archetypes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290638-9781801345880-guided-meditations-for-deep-sleep/"><u>Guided Meditations For Deep Sleep | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290847-9781098011635-identity-in-christ/"><u>Identity in Christ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289716-9781507217443-money-spells/"><u>Money Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290439-9781662410581-principles-of-progress/"><u>Principles of Progress | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289628-9788792633606-tarology/"><u>Tarology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210289620-9780645169911-the-power-of-love-with-animals/"><u>The Power of Love with Animals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290511-9781636308029-visible-visions-motivation/"><u>Visible Visions Motivation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290849-9781098017040-will-there-be-chocolate-in-heaven/"><u>Will There Be Chocolate in Heaven? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: La Abadía de los Benedictinos | Free Book
-date: 2024-10-21T01:52:52.674Z
-updated: 2024-10-26T18:26:17.974Z
+date: 2025-02-10T18:07:00.117Z
+updated: 2025-02-15T19:58:32.332Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a35ce011e65f0535c1152a862d66e40a262c590ca55c5af0bdb36fafe312203.jpg
@@ -176,3 +176,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a35ce011e65f0535c1152a862d66e4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209876607-9781913140106-creative-regeneration/"><u>Creative Regeneration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876683-9781913192372-grave-doubts/"><u>Grave Doubts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876641-9780648658207-leader-of-the-dance/"><u>Leader of the Dance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876871-9781513650845-nikola-tesla-afterlife-comments-on-paraphysical-concepts/"><u>Nikola Tesla: Afterlife Comments On Paraphysical Concepts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876593-9781643145945-souls-from-mercury/"><u>Souls from Mercury | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876584-9789389157765-the-science-of-mind/"><u>The Science of Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876794-9781999067625-the-way-to-peace/"><u>the Way to Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209876634-9780648520214-uncage-the-lion-within/"><u>Uncage the Lion Within | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

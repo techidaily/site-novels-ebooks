@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Impact Books) | Free Book
-date: 2025-01-31T18:34:26.489Z
-updated: 2025-02-03T17:50:51.243Z
+date: 2025-02-14T20:57:33.684Z
+updated: 2025-02-16T01:34:42.441Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f89fb97561f703e5667e68f81dda24d211.jpg
@@ -149,13 +149,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96181048-9781401954741-its-not-your-money/"><u>It's Not Your Money | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96181148-9781841814889-the-astrology-bible/"><u>The Astrology Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96181163-9780349413846-the-little-book-of-peace/"><u>The Little Book of Peace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96181138-9781781576519-the-witchcraft-handbook/"><u>The Witchcraft Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210124224-9780593189702-dusk-night-dawn/"><u>Dusk, Night, Dawn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210123885-9781789046397-everything-you-never-learned-about-sex/"><u>Everything You Never Learned About Sex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210123670-9780993911446-medicine-buddhamedicine-mind/"><u>Medicine Buddha/Medicine Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210123887-9781789044331-medicine-of-the-imagination-dwelling-in-possibility/"><u>Medicine of the Imagination: Dwelling in Possibility | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210123902-9781797200378-moon-bath/"><u>Moon Bath | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210123412-9780744043044-tarot/"><u>Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210124120-9781475857238-teach-like-a-human/"><u>Teach Like a Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210124291-9781784884116-the-art-of-stillness-in-a-noisy-world/"><u>The Art of Stillness in a Noisy World | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

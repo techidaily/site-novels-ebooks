@@ -1,7 +1,7 @@
 ---
 title: The Path Is The Way To Self-Mastery | Free Book
-date: 2024-10-21T18:30:57.282Z
-updated: 2024-10-27T03:32:27.655Z
+date: 2025-02-13T17:36:54.729Z
+updated: 2025-02-16T01:30:01.263Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9d96251c9d9f97a94b3c705013bf24e30e15c3dfd33250858a46d0f47e8fb1af.jpg
@@ -161,3 +161,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9d96251c9d9f97a94b3c705013bf24e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/187145-9781932681048-of-occult-philosophy-or-of-magical-ceremonies/"><u>Of Occult Philosophy or of Magical Ceremonies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1865632-9781782796862-rising-in-love/"><u>Rising in Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/186937-9781595470843-the-flying-saucers-are-real/"><u>The Flying Saucers Are Real | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/187154-9781932681062-the-secret-work-of-the-order-of-the-eastern-star/"><u>The Secret Work of the Order of the Eastern Star | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/186876-9781595470829-the-stone-of-the-philosophers/"><u>The Stone of the Philosophers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1865637-9781782792246-what-a-blip/"><u>What A Blip | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

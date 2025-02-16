@@ -1,7 +1,7 @@
 ---
 title: The Magic of Crystals and Gems | Free Book
-date: 2025-01-29T17:42:13.658Z
-updated: 2025-02-03T17:23:43.183Z
+date: 2025-02-14T23:04:01.375Z
+updated: 2025-02-16T01:55:03.457Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b38fff263087f40773acdeafb58a28caf35.jpg
@@ -181,15 +181,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96370972-9780876048795-angeles-arcangeles-y-fuerzas-invisibles/"><u>Angeles, Arcangeles y Fuerzas Invisibles | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370966-9780876048528-beyond-death/"><u>Beyond Death | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370965-9780876048184-edgar-cayces-sacred-stones/"><u>Edgar Cayce's Sacred Stones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370969-9780876048467-soul-spirit/"><u>Soul & Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370978-9780876047880-unlocking-your-intuition/"><u>Unlocking Your Intuition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370979-9780876049006-your-life/"><u>Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197741-9781782408109-art-of-mindful-reading/"><u>Art of Mindful Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197891-9781631599750-crystal-grids-handbook/"><u>Crystal Grids Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197603-9780760365809-eff-this-meditation/"><u>Eff This! Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197696-9780760363652-in-focus-tarot/"><u>In Focus Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197803-9780760368220-knot-magic/"><u>Knot Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197569-9781782407133-secrets-of-numerology/"><u>Secrets of Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197589-9780711252844-the-mindful-universe/"><u>The Mindful Universe | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

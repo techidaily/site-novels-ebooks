@@ -1,7 +1,7 @@
 ---
 title: Rituals for Life, Love, and Loss | Free Book
-date: 2025-02-01T17:04:20.577Z
-updated: 2025-02-03T18:15:44.112Z
+date: 2025-02-09T19:38:21.444Z
+updated: 2025-02-15T18:39:54.372Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7ac0e75cba816d9bed1914107f52000d16.jpg
@@ -179,17 +179,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96316639-9781401941888-directing-your-destiny/"><u>Directing Your Destiny | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316635-9781401946852-e-cubed/"><u>E-Cubed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316657-9781401949747-memories-of-heaven/"><u>Memories of Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316637-9781401939663-pocket-guide-to-spirit-animals/"><u>Pocket Guide to Spirit Animals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316649-9781401951931-secrets-of-the-lost-mode-of-prayer/"><u>Secrets of the Lost Mode of Prayer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316648-9781401949594-the-biology-of-belief-10th-anniversary-edition/"><u>The Biology of Belief 10th Anniversary Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316636-9781401944674-the-magic-path-of-intuition/"><u>The Magic Path of Intuition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316645-9781401947613-the-truth-of-spirits/"><u>The Truth of Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210144120-9781615649327-chakra-healing/"><u>Chakra Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210143755-9781596500396-conversations-in-apocalyptic-times/"><u>Conversations in Apocalyptic Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210143869-9781087920603-inspired-by-k/"><u>Inspired By K | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210144195-9781777282912-the-false-healer/"><u>The False Healer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210143833-9781777339814-the-good-thing-about-mortar-shells/"><u>The Good Thing About Mortar Shells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210143799-9780982685570-the-journey-from-ego-to-soul/"><u>The Journey from Ego to Soul | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

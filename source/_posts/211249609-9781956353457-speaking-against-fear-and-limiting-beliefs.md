@@ -1,7 +1,7 @@
 ---
 title: Speaking Against Fear and Limiting Beliefs | Free Book
-date: 2024-10-22T05:19:09.460Z
-updated: 2024-10-27T00:25:20.289Z
+date: 2025-02-09T17:49:51.150Z
+updated: 2025-02-15T20:11:37.712Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/393f0e4bc2fbf0293fab5aaf992134079b3d8b64aa5c99e944e4d81308551634.jpg
@@ -160,3 +160,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/393f0e4bc2fbf0293fab5aaf9921340
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209670361-9781459744516-eerie-edmonton/"><u>Eerie Edmonton | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209671892-9781760871253-make-it-happen/"><u>Make It Happen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209669429-9781927360101-moving-beyond-the-christian-myth-the-next-step-in-our-spiritual-evolution/"><u>Moving Beyond the Christian Myth: The Next Step in Our Spiritual Evolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209671632-9781722522353-prayer-is-the-answer/"><u>Prayer is the Answer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209669411-9781771433037-reiki-don-universel-de-lamour-guerissant-de-dieu-manuel-de-formation-niveaux-i-et-ii/"><u>Reiki: Don Universel de l’Amour Guerissant de Dieu Manuel de Formation, Niveaux I et II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209671948-9781781577561-the-palm-reading-guide/"><u>The Palm Reading Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209669587-9781946444721-the-path-to-serendipity/"><u>The Path to Serendipity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209669438-9781926918914-two-on-a-bridge-the-workbook-a-companion-tool-designed-to-enhance-discussions-outlined-in-the-two-on-a-bridge-guidebook/"><u>Two on a Bridge The Workbook: A Companion Tool Designed to Enhance Discussions Outlined in the Two on a Bridge Guidebook | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Sacred Stones | Free Book
-date: 2025-01-28T18:04:47.206Z
-updated: 2025-02-03T16:39:23.298Z
+date: 2025-02-14T16:35:37.398Z
+updated: 2025-02-16T02:10:26.944Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c2342d3f9628aa1746820b2356f8531168276.jpg
@@ -138,14 +138,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4776edd2ef9b29f068f3a708d52c234
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138566229-9781401932114-an-autobiography-of-george-washington/"><u>An Autobiography of George Washington | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138566228-9781401922603-astrology-through-a-phychics-eyes/"><u>Astrology Through a Phychic's Eyes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138565813-9780880500937-falling-in-love-with-darkness/"><u>Falling in Love With Darkness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138561271-9780281078059-see-love-be/"><u>See, Love, Be | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138564923-9780880504553-the-psychology-of-the-esoteric-2nd-ed/"><u>The Psychology of the Esoteric (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360588-9781789049749-confronting-the-crisis/"><u>Confronting the Crisis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360581-9781789047929-earth-is-a-school/"><u>Earth is a School | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361483-9780997717860-one-2nd-ed/"><u>ONE... (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360591-9781789043167-spirit-life-science/"><u>Spirit Life & Science | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361496-9781737540519-the-golden-remembrance/"><u>The Golden Remembrance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361523-9781737435617-the-next-room/"><u>The Next Room | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360847-9781848994072-the-witchs-feast/"><u>The Witch's Feast | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361075-9780978770013-time-travels/"><u>Time Travels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210361408-9781476643823-transformed-in-a-stroke/"><u>Transformed in a Stroke | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

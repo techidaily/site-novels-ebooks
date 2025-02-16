@@ -1,7 +1,7 @@
 ---
 title: Creepy Paranormal Stories | Free Book
-date: 2024-10-21T21:47:30.608Z
-updated: 2024-10-27T03:24:52.828Z
+date: 2025-02-09T21:48:27.881Z
+updated: 2025-02-15T22:47:13.779Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21c5d69c391114fa78227588e0cfa20d0a8bf35cb277a9be71a6399fbb7a6711.jpg
@@ -207,3 +207,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21c5d69c391114fa78227588e0cfa20
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209676666-9781620559567-conscious-confidence/"><u>Conscious Confidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209676663-9781620559888-earth-spirit-dreaming/"><u>Earth Spirit Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209679979-9781782506232-enchantment/"><u>Enchantment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209677278-9781465489432-healing-crystals/"><u>Healing Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209680338-9781620559161-life-design-for-women/"><u>Life Design for Women | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209679963-9781642500622-living-the-faery-life/"><u>Living the Faery Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209676747-9781722523060-the-kybalion/"><u>The Kybalion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209678098-9780990942443-the-power-to-heal/"><u>The Power to Heal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209677279-9781465489418-wicca-and-witchcraft/"><u>Wicca and Witchcraft | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

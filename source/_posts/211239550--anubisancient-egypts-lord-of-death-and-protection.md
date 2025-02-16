@@ -1,7 +1,7 @@
 ---
 title: Anubis—Ancient Egypt’s Lord of Death and Protection | Free Book
-date: 2024-10-22T20:54:20.479Z
-updated: 2024-10-27T01:44:52.821Z
+date: 2025-02-14T22:57:45.178Z
+updated: 2025-02-15T16:37:00.512Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2f69e020bd503554fd7cd675e8eaee308bdaa3fa02f340e90b26c5c03d4cbdcb.jpg
@@ -160,3 +160,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2f69e020bd503554fd7cd675e8eaee3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209840789-9780975253854-365-ways-to-a-stronger-you/"><u>365 Ways to a Stronger You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840755-9780996278010-ama-deus/"><u>Ama-Deus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840786-9781935214151-aura-reading-through-all-your-senses/"><u>Aura Reading Through All Your Senses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840812-9781935214137-cut-cords-of-attachment-for-self-healing/"><u>Cut Cords of Attachment for Self-Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840736-9781935214199-cut-cords-of-attachment/"><u>Cut Cords of Attachment: | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840717-9780992481674-messages-from-the-spirit-realm/"><u>Messages From The Spirit Realm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840728-9780473328320-the-magic-of-the-akashic-records/"><u>The Magic of the Akashic Records | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840731-9781935214090-the-new-power-of-face-reading/"><u>The NEW Power of Face Reading | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840732-9781935214274-use-your-power-of-command-for-spiritual-cleansing-and-protection/"><u>Use Your Power of Command for Spiritual Cleansing and Protection | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

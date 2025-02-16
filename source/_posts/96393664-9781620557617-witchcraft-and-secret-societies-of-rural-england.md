@@ -1,7 +1,7 @@
 ---
 title: Witchcraft and Secret Societies of Rural England | Free Book
-date: 2025-01-27T17:55:02.653Z
-updated: 2025-02-03T16:59:23.612Z
+date: 2025-02-09T17:48:54.730Z
+updated: 2025-02-16T02:22:19.345Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72ded27c406ae1112debcad8d5e46edb2254.jpg
@@ -184,13 +184,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6eab382b691b9019a2b519bd5efe72d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1138133-9780892545629-asteroid-goddesses/"><u>Asteroid Goddesses | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1132934-9780770437527-awaken-the-spirit-within/"><u>Awaken the Spirit Within | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1137750-9781935295952-language-of-the-heart/"><u>Language of the Heart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1138134-9780892545711-the-astrology-of-self-discovery/"><u>The Astrology of Self-Discovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210335129-9781797209548-animal-power/"><u>Animal Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210335377-9780593420874-awakening-the-crystals/"><u>Awakening the Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334614-9781506480404-blessings-for-the-long-night-poems-and-meditations-to-help-you-through-depression/"><u>Blessings for the Long Night: Poems and Meditations to Help You through Depression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334594-9781506468624-take-what-you-need-life-lessons-after-losing-everything/"><u>Take What You Need: Life Lessons after Losing Everything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334503-9781638440529-the-peoples-cry/"><u>The People's Cry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334915-9782357288317-the-virgin-of-the-world-of-hermes-mercurius-trismegistos/"><u>The Virgin of the World of Hermes Mercurius Trismegistos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334717-9780834844087-the-wakeful-body/"><u>The Wakeful Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210334937-9781631953705-timeless/"><u>Timeless | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

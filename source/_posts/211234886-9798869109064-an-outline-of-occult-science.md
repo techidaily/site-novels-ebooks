@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science | Free Book
-date: 2024-10-21T23:56:28.500Z
-updated: 2024-10-26T17:34:57.982Z
+date: 2025-02-11T02:39:07.432Z
+updated: 2025-02-15T19:54:40.616Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1dc290ec4b36a1bba9acf0ac54f482dddeeaa965eb1a9946a2aa109bef006cfb.jpg
@@ -184,3 +184,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1dc290ec4b36a1bba9acf0ac54f482d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209874048-9780983199953-god-has-gone-corporate/"><u>God Has Gone Corporate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209874042-9780983199915-god-works-through-dreams/"><u>God Works Through Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209874044-9780983199939-gods-mission/"><u>God's Mission | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209874434-9781733055888-the-5-human-senses-success/"><u>The 5 Human Sense's Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209874098-9780995120327-the-lantern-in-the-skull/"><u>The Lantern In The Skull | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

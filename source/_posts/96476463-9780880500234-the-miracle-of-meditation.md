@@ -1,7 +1,7 @@
 ---
 title: The Miracle of Meditation | Free Book
-date: 2025-01-30T16:12:08.211Z
-updated: 2025-02-03T18:44:45.301Z
+date: 2025-02-08T18:57:43.217Z
+updated: 2025-02-15T22:34:38.098Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b845325817114f0779846792eb5c23c4a51c.jpg
@@ -166,17 +166,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6350b2003cce3742c7191c8d722b84
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96476531-9780880507110-accepting-myself-the-way-i-am/"><u>Accepting Myself the Way I Am | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96484243-9781608685394-mysterious-realities/"><u>Mysterious Realities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96487355-9781782792123-naked-tarot/"><u>Naked Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96487357-9781785358036-shaman-pathways-what-is-shamanism/"><u>Shaman Pathways - What is Shamanism? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96476530-9780880501965-the-beauty-of-the-human-soul/"><u>The Beauty of the Human Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96478114-9781633535343-the-magic-of-crystals-and-gems/"><u>The Magic of Crystals and Gems | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96476532-9780880500951-the-perfect-way/"><u>The Perfect Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96486063-9781935205241-woman-overboard/"><u>Woman Overboard | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210223565-9781910027363-ghosts-of-the-nhs/"><u>Ghosts of the NHS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210223566-9781910027387-power-for-good/"><u>Power for Good | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210223560-9781788360616-radical-transformation/"><u>Radical Transformation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210223931-9780008485023-ten-times-happier-how-to-let-go-of-whats-holding-you-back/"><u>Ten Times Happier: How to Let Go of What’s Holding You Back | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210223567-9781910027448-the-angels-beside-us/"><u>The Angels Beside Us | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

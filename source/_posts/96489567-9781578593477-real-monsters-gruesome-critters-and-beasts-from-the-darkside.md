@@ -1,7 +1,7 @@
 ---
 title: Real Monsters, Gruesome Critters, and Beasts from the Darkside | Free Book
-date: 2025-01-28T16:07:02.715Z
-updated: 2025-02-03T17:04:21.752Z
+date: 2025-02-13T02:20:51.330Z
+updated: 2025-02-16T02:24:28.844Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f970db301b1a0d214628e1d2aa90fb0a38.jpg
@@ -262,14 +262,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ae9391ad70a4b526e363ddcd206079f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96456390-9781420937664-mental-chemistry/"><u>Mental Chemistry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96456244-9781596746718-miracle-mongers-and-their-methods/"><u>Miracle Mongers and Their Methods | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96456840-9781420948141-the-key-of-solomon-the-king-clavicula-salomonis/"><u>The Key of Solomon the King: Clavicula Salomonis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96456876-9781420956108-the-science-of-mind-the-original-1926-edition/"><u>The Science of Mind (The Original 1926 Edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96464922-9781615931132-the-shaman-and-ayahuasca/"><u>The Shaman and Ayahuasca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206443-9781087885988-100-love-spells/"><u>100 Love Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206402-9781420972610-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206318-9781087934433-live-in-one-light-creating-heaven-on-earth-with-the-light-of-life-within/"><u>Live in One Light - Creating Heaven on Earth with the Light of Life within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207967-9780578833491-the-complete-astrology-and-intuitive-guide-to-2021/"><u>The Complete Astrology and Intuitive Guide To 2021 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210206422-9781420972603-the-law-of-success/"><u>The Law of Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207088-9781913816285-the-sacred-revival/"><u>THE SACRED REVIVAL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207075-9781722526139-think-and-grow-rich-and-the-richest-man-in-babylon-original-classic-editions/"><u>Think and Grow Rich and The Richest Man in Babylon (Original Classic Editions) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210207169-9780593139493-your-intuition-led-you-here/"><u>Your Intuition Led You Here | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

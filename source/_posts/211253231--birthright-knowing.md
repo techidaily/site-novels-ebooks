@@ -1,7 +1,7 @@
 ---
 title: Birthright Knowing | Free Book
-date: 2024-10-22T03:18:06.012Z
-updated: 2024-10-27T01:19:40.038Z
+date: 2025-02-12T20:04:52.047Z
+updated: 2025-02-16T01:11:50.715Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/6eacab30df26697174255046bef633e07cc92a25058e30ff79d315de98247434.jpg
@@ -160,3 +160,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6eacab30df26697174255046bef633e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209593991-9781472957443-giving-up-without-giving-up/"><u>Giving Up Without Giving Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209595077-9781250232700-spirit-hacking/"><u>Spirit Hacking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209594849-9780008341824-the-little-book-of-otter-philosophy-the-little-animal-philosophy-books/"><u>The Little Book of Otter Philosophy (The Little Animal Philosophy Books) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209594746-9781786782984-what-the-dead-are-dying-to-teach-us/"><u>What the Dead are Dying to Teach Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209594761-9781786782977-when-plants-dream/"><u>When Plants Dream | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

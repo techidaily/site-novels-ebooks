@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce's Origin and Destiny of Man | Free Book
-date: 2025-01-31T18:40:13.613Z
-updated: 2025-02-03T16:09:45.508Z
+date: 2025-02-09T19:38:38.998Z
+updated: 2025-02-15T23:59:51.257Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/45d4e044510693df19d25dad13a60aa2c793124908b958b4a5f62931aa531578.jpg
@@ -141,13 +141,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/45d4e044510693df19d25dad13a60aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1337379-9780988677302-body-signals/"><u>Body Signals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1322633-9780988432758-en-glimt-av-nad/"><u>En Glimt Av Nad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1322659-9781609257309-tarot-of-ceremonial-magick/"><u>Tarot of Ceremonial Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1331247-9781938289149-understanding-human-design/"><u>Understanding Human Design | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210353180-9781922428349-contemplation/"><u>Contemplation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210352848-9781734875959-invisible-no-more-invincible-forever-more/"><u>Invisible No More; Invincible Forever More | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210352818-9781637108093-parkinsons-life-lessons-five-years-into-the-journey/"><u>Parkinson's: Life Lessons Five Years into the Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210353032-9781786786456-the-modern-craft/"><u>The Modern Craft | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

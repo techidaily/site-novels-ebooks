@@ -1,7 +1,7 @@
 ---
 title: The Law of the Higher Potential | Free Book
-date: 2025-01-27T16:31:37.122Z
-updated: 2025-02-03T16:18:37.186Z
+date: 2025-02-11T20:56:42.469Z
+updated: 2025-02-15T20:08:26.974Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c175f1d4a295b215f02769aae220a2eea7.jpg
@@ -135,14 +135,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96164934-9781620557693-future-sacred/"><u>Future Sacred | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164940-9781620558348-mind-detox-2nd-ed/"><u>Mind Detox (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164932-9781620557570-runic-lore-and-legend-2nd-ed/"><u>Runic Lore and Legend (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164942-9781620557778-searching-for-the-philosophers-stone/"><u>Searching for the Philosophers' Stone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96164933-9781620557952-the-nepalese-shamanic-path/"><u>The Nepalese Shamanic Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210113114-9782824634326-aux-frontieres-de-lesprit/"><u>Aux Frontières de L'Esprit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210112798-9780648951940-little-bit/"><u>Little Bit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210112793-9781513663616-nikola-tesla-volume-five/"><u>Nikola Tesla: Volume Five | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210112422-9781722526245-think-and-grow-rich/"><u>Think and Grow Rich | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

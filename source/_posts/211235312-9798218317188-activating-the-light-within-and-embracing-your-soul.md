@@ -1,7 +1,7 @@
 ---
 title: Activating the Light Within and Embracing Your Soul | Free Book
-date: 2024-10-25T02:23:51.358Z
-updated: 2024-10-27T03:03:17.623Z
+date: 2025-02-14T22:55:24.934Z
+updated: 2025-02-15T19:21:47.832Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e00761a925805fc415f03acd04889e886c39cb3a6d5c8cc4f0fb45871cfb8160.jpg
@@ -173,3 +173,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e00761a925805fc415f03acd04889e8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209877980-9781641115117-appalachian-hymnal/"><u>Appalachian Hymnal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209877515-9781907767500-cosmologies/"><u>Cosmologies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209878278-9780985605155-dreaming-inside-out/"><u>Dreaming Inside Out | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209878522-9781640885141-harolds-story/"><u>Harold's Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209878381-9780995120471-learning-who-you-are/"><u>Learning Who You Are | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209877735-9781912517053-nonduale-therapie/"><u>Nonduale Therapie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209877407-9781643676715-student/"><u>Student | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

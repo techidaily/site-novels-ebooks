@@ -1,7 +1,7 @@
 ---
 title: The Secret Commonwealth of Elves, Fauns and Fairies | Free Book
-date: 2025-01-31T17:45:56.720Z
-updated: 2025-02-03T16:07:08.923Z
+date: 2025-02-13T21:26:55.728Z
+updated: 2025-02-15T18:22:24.580Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0b36795843e616590b0e5f3c819e98003b2b3dc248ebba8af5ed8092e4b1dc0.jpg
@@ -168,15 +168,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0b36795843e616590b0e5f3c819e98
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125895-9781609253905-meditation-and-kabbalah/"><u>Meditation and Kabbalah | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125896-9781609254865-meditation-and-the-bible/"><u>Meditation and the Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125900-9781609250195-meta-magick-the-book-of-atem/"><u>Meta-Magick: The Book of ATEM | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125904-9781609254674-modern-shamanic-living/"><u>Modern Shamanic Living | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125914-9781609258009-mrs-bs-guide-to-household-witchery/"><u>Mrs. B's Guide to Household Witchery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125917-9781609256586-mysteries-of-templar-treasure-the-holy-grail/"><u>Mysteries of Templar Treasure & the Holy Grail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210301479-9781916045163-crystal-spell-kit-instruction-booklet/"><u>Crystal Spell Kit Instruction Booklet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210301097-9781638230168-divine-keys-to-unlocking-your-destiny/"><u>DIVINE KEYS TO UNLOCKING YOUR DESTINY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210301091-9781736872826-harder-than-i-thought-easier-than-i-feared/"><u>Harder Than I Thought, Easier Than I Feared | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210301090-9781908421500-here-and-hereafter/"><u>Here and Hereafter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210300564-9781398810471-spells-charms/"><u>Spells & Charms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210300563-9781398814103-tarot-other-divination-arts/"><u>Tarot & Other Divination Arts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210300565-9781398814097-the-healing-handbook/"><u>The Healing Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210300577-9780593330166-you-are-radically-loved/"><u>You Are Radically Loved | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

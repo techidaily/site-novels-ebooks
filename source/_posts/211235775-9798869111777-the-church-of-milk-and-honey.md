@@ -1,7 +1,7 @@
 ---
 title: The Church of Milk and Honey | Free Book
-date: 2024-10-22T21:58:53.468Z
-updated: 2024-10-27T05:16:06.716Z
+date: 2025-02-09T01:36:03.756Z
+updated: 2025-02-15T22:30:56.276Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/17cc8c3f86f4813ed0463028e48cec32a1f3c52a11119065bdeb4e748dd09696.jpg
@@ -141,3 +141,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/17cc8c3f86f4813ed0463028e48cec3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209883273-9781783253883-a-dictionary-of-dream-symbols/"><u>A Dictionary of Dream Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209882409-9781087817729-codex-illuminatus/"><u>Codex Illuminatus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209882557-9781119584766-ghost-hunting-for-dummies/"><u>Ghost-Hunting For Dummies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883291-9780753734117-labyrinth-meditations/"><u>Labyrinth Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209882460-9781643676654-rushing-to-sunset/"><u>Rushing to Sunset | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883624-9781591433675-the-rebel-angels-among-us/"><u>The Rebel Angels among Us | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

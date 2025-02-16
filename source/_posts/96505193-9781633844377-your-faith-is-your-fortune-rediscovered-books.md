@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2025-01-27T16:59:44.438Z
-updated: 2025-02-03T16:36:29.309Z
+date: 2025-02-13T00:55:20.685Z
+updated: 2025-02-15T22:34:44.443Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -144,14 +144,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95955293-9780008301910-aries-2019-your-personal-horoscope/"><u>Aries 2019: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95950843--be-here/"><u>Be Here | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95955294-9780008301927-taurus-2019-your-personal-horoscope/"><u>Taurus 2019: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95950870-9781856753470-the-book-of-chakra-healing/"><u>The Book of Chakra Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95948906-9781785354601-witchcraftinto-the-wilds/"><u>Witchcraft…Into the Wilds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101849-9781989838730-bedtime-stories-for-adults-who-want-to-sleep-17-stories-and-beginners-guided-meditations-for-deep-sleep-overcoming-insomnia-anxiety-stress-relief-developing-min/"><u>Bedtime Stories For Adults Who Want To Sleep 17 Stories And Beginners Guided Meditations For Deep Sleep, Overcoming Insomnia & Anxiety, Stress Relief & Developing Mindfulness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101856-9781989838778-bedtime-stories-for-adults-with-insomnia-2-in-1-deep-sleep-stories-meditations-to-help-you-quiet-the-mind-fall-asleep-fast-overcome-nighttime-anxiety-stress-rel/"><u>Bedtime Stories For Adults With Insomnia (2 in 1) Deep Sleep Stories & Meditations To Help You Quiet The Mind, Fall Asleep Fast & Overcome Nighttime Anxiety & Stress-Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101854-9781989838761-bedtime-stories-for-stressed-out-adults-relaxing-sleep-stories-guided-mindfulness-meditations-self-hypnosis-for-deep-sleep-overcoming-anxiety-insomnia-stress-re/"><u>Bedtime Stories for Stressed Out Adults Relaxing Sleep Stories, Guided Mindfulness Meditations & Self-Hypnosis For Deep Sleep, Overcoming Anxiety, Insomnia & Stress Relief | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101892-9781797205434-cosmic-care/"><u>Cosmic Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101848-9781989838723-guided-mindfulness-meditations-for-stressed-out-adults-beginners-meditation-bedtime-stories-hypnosis-for-self-healing-deep-sleep-anxiety-relaxation-insomnia-ove/"><u>Guided Mindfulness Meditations for Stressed Out Adults Beginners Meditation, Bedtime Stories & Hypnosis For Self-Healing, Deep Sleep, Anxiety, Relaxation, Insomnia & Overthinking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101852-9781989838747-quit-smoking-hypnosis-guided-self-hypnosis-meditations-to-stop-smoking-addiction-smoking-cessation-including-positive-affirmations-visualizations-relaxation-tec/"><u>Quit Smoking Hypnosis Guided Self-Hypnosis & Meditations To Stop Smoking Addiction & Smoking Cessation Including Positive Affirmations, Visualizations & Relaxation Techniques | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101851-9781989838754-rapid-weight-loss-hypnosis-program-for-women-beginners-21-day-hypnosis-affirmations-for-fat-burning-calorie-blast-mindfulness-emotional-eating-cravings-hypnotic/"><u>Rapid Weight Loss Hypnosis Program For Women Beginners 21 Day Hypnosis & Affirmations For Fat Burning, Calorie Blast, Mindfulness, Emotional Eating & Cravings (Hypnotic Gastric Band) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

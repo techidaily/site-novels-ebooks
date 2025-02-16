@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of Forgiveness | Free Book
-date: 2025-01-31T17:16:22.978Z
-updated: 2025-02-03T16:01:30.153Z
+date: 2025-02-13T20:42:37.996Z
+updated: 2025-02-16T00:06:13.825Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25962baa67acd7a750d9439b29b6f9ed9bf.jpg
@@ -160,16 +160,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95935396-9781844097920-change-the-story-of-your-health/"><u>Change the Story of Your Health | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935392-9781844098606-change-your-story-change-your-life/"><u>Change Your Story, Change Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935388-9781844097739-dream-patterns/"><u>Dream Patterns | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935393-9781844093274-enlightenment-through-orbs/"><u>Enlightenment Through Orbs | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935391-9781844098828-forgiveness-is-power/"><u>Forgiveness is Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935389-9781844097944-managing-psychic-abilities/"><u>Managing Psychic Abilities | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935385-9781844093014-stories-we-need-to-know/"><u>Stories We Need to Know | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210085752-9781000197181-a-multidisciplinary-approach-to-embodiment/"><u>A Multidisciplinary Approach to Embodiment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210086699-9781982169862-life-lessons-from-a-homemade-sourdough-starter/"><u>Life Lessons from a Homemade Sourdough Starter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210086426-9780593196816-the-healing-power-of-witchcraft/"><u>The Healing Power of Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210086454-9781401961459-unblocked/"><u>Unblocked | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

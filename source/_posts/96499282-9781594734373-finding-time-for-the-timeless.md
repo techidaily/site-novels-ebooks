@@ -1,7 +1,7 @@
 ---
 title: Finding Time for the Timeless | Free Book
-date: 2025-01-30T17:16:25.217Z
-updated: 2025-02-03T17:11:36.874Z
+date: 2025-02-09T20:34:04.834Z
+updated: 2025-02-16T02:10:11.650Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de1212f65cf3f6043399457c9995711c55b.jpg
@@ -219,13 +219,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dbe9c6590139a84f4e5245f5a59d1de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96316914-9781401932060-a-spiritual-philosophy-for-the-new-world/"><u>A Spiritual Philosophy for the New World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316908-9781401931148-along-the-path-to-enlightenment/"><u>Along the Path to Enlightenment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316911-9781401932589-nothing-is-too-good-to-be-true/"><u>Nothing Is Too Good to Be True | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316904-9781401930875-what-if/"><u>What If? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163661-9781640828179-got-inspiration-365-days-of-inspiration-for-you/"><u>Got Inspiration? 365 Days of Inspiration for You! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163917-9781646282203-higher-learning-for-higher-activities/"><u>Higher Learning for Higher Activities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210164012-9781645848943-it-is-time/"><u>It Is Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163979-9781647017002-medium-brave/"><u>Medium Brave | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210164425-9781634177542-the-story-of-us/"><u>The Story of Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210163728-9781644628126-the-team/"><u>The Team | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210164021-9781646286690-words-thoughts-imaginations-and-inspirational-reading/"><u>Words, Thoughts, Imaginations, and Inspirational Reading | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

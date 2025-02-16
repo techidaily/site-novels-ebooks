@@ -1,7 +1,7 @@
 ---
 title: Real Vampires, Night Stalkers and Creatures from the Darkside | Free Book
-date: 2025-01-29T16:58:55.112Z
-updated: 2025-02-03T18:14:14.279Z
+date: 2025-02-09T16:49:14.109Z
+updated: 2025-02-15T16:29:18.620Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba52cc7846904e33e59cad7bfcbbcd8d453.jpg
@@ -213,18 +213,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96440136-9781561646388-ancient-city-hauntings/"><u>Ancient City Hauntings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96454333-9781561649495-best-ghost-tales-of-north-carolina/"><u>Best Ghost Tales of North Carolina | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96440154-9781561646326-florida-ghost-stories/"><u>Florida Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96440126-9781561646029-orlandos-historic-haunts/"><u>Orlando's Historic Haunts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96438816-9781908746900-peachey-letters/"><u>Peachey Letters | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96455109-9781420909616-practical-mysticism/"><u>Practical Mysticism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96440283-9781612680330-second-opinion/"><u>Second Opinion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96437876-9781595588869-the-cushion-in-the-road/"><u>The Cushion in the Road | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96438705-9781934170311-the-secret-source/"><u>The Secret Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210204715-9781925816334-a-year-of-loving-kindness-to-myself/"><u>A Year of Loving Kindness to Myself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210204515-9781684035731-good-morning-intentions/"><u>Good Morning Intentions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203698-9781637958810-written-in-the-stars/"><u>Written in the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210204337--your-soul-had-a-dream-your-life-is-it/"><u>Your Soul Had a Dream, Your Life Is It | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

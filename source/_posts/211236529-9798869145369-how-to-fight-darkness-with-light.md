@@ -1,7 +1,7 @@
 ---
 title: How to Fight Darkness with Light | Free Book
-date: 2024-10-21T03:50:02.902Z
-updated: 2024-10-26T16:46:11.364Z
+date: 2025-02-12T21:14:49.430Z
+updated: 2025-02-15T16:09:44.381Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3245eccfc2cefe4cc651a659b618ff98fde9ffbabd1ec55a81f0c0746671ecb2.jpg
@@ -136,3 +136,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3245eccfc2cefe4cc651a659b618ff9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209853868-9780982508541-me-the-crazy-woman-and-breast-cancer-2nd-ed/"><u>Me, the Crazy Woman, and Breast Cancer (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209854105-9789670310718-qi-men-dun-jia-forecasting-method-wealth-life-pursuits/"><u>Qi Men Dun Jia Forecasting Method - Wealth & Life Pursuits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209853888-9781910559390-wild-wise/"><u>Wild & Wise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209854114-9781947938236-your-first-step-to-re-create-your-life-in-oneness/"><u>Your First Step to Re-Create Your Life in Oneness | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

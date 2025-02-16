@@ -1,7 +1,7 @@
 ---
 title: Meditation & Its Practices | Free Book
-date: 2025-01-30T18:26:46.483Z
-updated: 2025-02-03T17:27:57.490Z
+date: 2025-02-13T01:27:47.601Z
+updated: 2025-02-15T22:11:48.737Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb216fb9f9c12932ff1f4259e595b0548389f.jpg
@@ -166,17 +166,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f5e422c4c2b44f049c63a95f98ddb21
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96316938-9781401935573-belief-re-patterning/"><u>Belief Re-patterning | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316945-9781401937454-grace-guidance-and-gifts/"><u>Grace, Guidance, and Gifts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316950-9781401942458-messages-from-margaret/"><u>Messages from Margaret | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316922-9781401932671-prayers/"><u>Prayers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316943-9781401937416-real-wealth/"><u>Real Wealth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316925-9781401933012-the-meditation-book/"><u>The Meditation Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316939-9781401936938-the-storm-before-the-calm/"><u>The Storm Before the Calm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96316923-9781401933548-what-happens-when-we-die/"><u>What Happens When We Die? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210164741-9781645841838-abscission/"><u>Abscission | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210164487-9781645446651-karma/"><u>Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210164790-9781644625019-my-walk-of-faith/"><u>My Walk of Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210164612-9781644240878-the-sacred-and-mystic-i/"><u>The Sacred and Mystic I | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

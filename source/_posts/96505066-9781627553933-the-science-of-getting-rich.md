@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2025-01-31T16:28:29.868Z
-updated: 2025-02-03T17:17:07.818Z
+date: 2025-02-15T00:36:47.449Z
+updated: 2025-02-16T02:39:13.115Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99189a7777dc630bad06d846d73dd09e1ba.jpg
@@ -137,14 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95935436-9781844099610-bach-flower-remedies-for-animals/"><u>Bach Flower Remedies for Animals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935433-9781844099009-conscious-food/"><u>Conscious Food | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935438-9781844093120-reiki-shamanism/"><u>Reiki Shamanism | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935435-9781844099894-the-angels-of-atlantis/"><u>The Angels of Atlantis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935437-9781844097937-the-third-circle-protocol/"><u>The Third Circle Protocol | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210091971-9780997466683-believe-angels-dont-lie/"><u>Believe . . . Angels Don't Lie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210091788-9781439668054-haunts-of-the-white-city/"><u>Haunts of the White City | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210091797-9781614234388-kentucky-book-of-the-dead/"><u>Kentucky Book of the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210091798-9781614237105-new-hampshire-book-of-the-dead/"><u>New Hampshire Book of the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094003-9781789044751-scavengers-of-beauty/"><u>Scavengers of Beauty | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

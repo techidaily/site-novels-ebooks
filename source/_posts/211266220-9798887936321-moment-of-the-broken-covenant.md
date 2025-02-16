@@ -1,7 +1,7 @@
 ---
 title: Moment of the Broken Covenant | Free Book
-date: 2024-10-22T22:45:42.687Z
-updated: 2024-10-27T01:32:32.333Z
+date: 2025-02-13T01:54:29.475Z
+updated: 2025-02-15T17:39:59.194Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/706fb08c4f983d14cf03f47c145a097493604b2049a8403319363567f6225ffb.jpg
@@ -147,3 +147,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/706fb08c4f983d14cf03f47c145a097
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138621273-9781601639561-natural-born-intuition/"><u>Natural Born Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621252-9781601635914-psychic-intuition/"><u>Psychic Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621247-9781601637253-spiritual-protection/"><u>Spiritual Protection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621255-9781601636119-the-pyramids-and-the-pentagon/"><u>The Pyramids and the Pentagon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621254-9781601636294-the-rise-and-fall-of-the-nephilim/"><u>The Rise and Fall of the Nephilim | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621244-9781601635426-the-secret-history-of-the-reptilians/"><u>The Secret History of the Reptilians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621265-9781601639325-unearthing-ancient-america/"><u>Unearthing Ancient America | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

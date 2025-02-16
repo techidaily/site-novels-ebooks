@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Virgo | Free Book
-date: 2024-10-22T21:15:33.849Z
-updated: 2024-10-27T03:25:22.258Z
+date: 2025-02-09T00:19:38.374Z
+updated: 2025-02-15T16:28:22.914Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/26740d37d24ef2dc927056a1983d8d6cfdb345aa1c9376cda08ab9d4d87f5cf4.jpg
@@ -167,3 +167,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/26740d37d24ef2dc927056a1983d8d6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209649137-9781786783165-can-the-mind-be-quiet/"><u>Can The Mind Be Quiet? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649425-9781591432647-denisovan-origins/"><u>Denisovan Origins | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209646643-9780876049754-edgar-cayce-on-angels-and-the-angelic-forces/"><u>Edgar Cayce on Angels and the Angelic Forces | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649151-9780525504726-nightmareland/"><u>Nightmareland | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649426-9781620558454-operative-witchcraft/"><u>Operative Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649427-9781620559079-rosicrucian-america/"><u>Rosicrucian America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649424-9781591433590-the-forever-angels/"><u>The Forever Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209649422-9781591433491-the-secret-history-of-the-hell-fire-clubs-4th-ed/"><u>The Secret History of the Hell-Fire Clubs (4th ed.) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

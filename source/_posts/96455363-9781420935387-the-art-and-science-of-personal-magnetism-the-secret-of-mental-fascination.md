@@ -1,7 +1,7 @@
 ---
 title: "The Art and Science of Personal Magnetism: The Secret of Mental Fascination | Free Book"
-date: 2025-01-28T17:31:58.338Z
-updated: 2025-02-03T17:58:45.905Z
+date: 2025-02-12T17:06:19.610Z
+updated: 2025-02-15T17:44:11.537Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52977932bab8b5bb52e35bf1419ff2f8f64.jpg
@@ -160,17 +160,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/979615-9781780997582-hey-holy-spirit-its-me-again/"><u>Hey, Holy Spirit, It's Me Again | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/979626-9781780998626-shamanism-the-book-of-journeys/"><u>Shamanism: The Book of Journeys | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/979627-9781780991221-spiritual-wisdom-from-the-altai-mountains/"><u>Spiritual Wisdom from the Altai Mountains | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/987542-9781451656053-ten-years-later/"><u>Ten Years Later | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/991774-9780307814869-the-creative-dreamer/"><u>The Creative Dreamer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/982548-9781572338814-the-spirit-of-the-appalachian-trail/"><u>The Spirit of the Appalachian Trail | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/979628-9781780990415-the-three-secrets-of-aging/"><u>The Three Secrets of Aging | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/979629-9781780993423-two-hearts-in-tuva/"><u>Two Hearts in Tuva | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210257917-9780578885735-canceled/"><u>Canceled | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210259787-9780834843592-diving-in-the-inner-ocean/"><u>Diving in the Inner Ocean | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210257913-9781638778110-inspirations/"><u>Inspirations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210258133-9786077132615-la-oracion-en-la-psicoterapia/"><u>La oración en la psicoterapia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210258399-9781529341980-lessons-from-a-bedside/"><u>Lessons from a Bedside | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210258131-9786077132714-travesia-entre-el-amor-y-la-muerte/"><u>Travesía entre el amor y la muerte | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

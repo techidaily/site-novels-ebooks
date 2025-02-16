@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2025-01-30T17:31:07.551Z
-updated: 2025-02-03T17:13:42.661Z
+date: 2025-02-13T22:49:50.093Z
+updated: 2025-02-15T18:36:24.364Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b13c6ad96644eaf4941fb18af2578bcac4.jpg
@@ -192,14 +192,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96225069-9782824648996-experiences-de-lapres-vie/"><u>Expériences de l'après-vie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96204111-9780547527321-green-mountain-ghosts-ghouls-unsolved-mysteries/"><u>Green Mountain Ghosts, Ghouls & Unsolved Mysteries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96201136-9781507161692-la-energia-sanadora-del-reiki-un-libro-para-principiantes-para-una-mejor-comprension/"><u>La energía sanadora del Reiki: Un libro para principiantes para una mejor comprensión | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96197985-9781633410855-the-book-of-pendulum-healing/"><u>The Book of Pendulum Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96193308-9781684031351-the-heartfulness-way/"><u>The Heartfulness Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210128582-9781401962951-african-goddess-initiation/"><u>African Goddess Initiation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127817-9781735539355-breathing-with-orisha/"><u>Breathing With Orisha | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210128301-9780691221991-doctor-illuminatus/"><u>Doctor Illuminatus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210129000-9781420970319-transcendental-magic/"><u>Transcendental Magic | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

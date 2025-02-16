@@ -1,7 +1,7 @@
 ---
 title: Nothing in This Book Is True, But It's Exactly How Things Are (5th ed.) | Free Book
-date: 2024-10-25T17:57:04.454Z
-updated: 2024-10-26T22:16:24.088Z
+date: 2025-02-11T18:43:36.506Z
+updated: 2025-02-15T21:08:46.383Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a339e3f0cce748dd559f2f8ad9f33c2244fc85a81191322432e87cf7e487e11.jpg
@@ -156,3 +156,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a339e3f0cce748dd559f2f8ad9f33c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209846800-9780995707016-become-a-warrior-woman/"><u>Become A Warrior Woman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846486-9780992520281-lucky-astrology-aries/"><u>Lucky Astrology - Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846480-9780648002338-lucky-astrology-cancer/"><u>Lucky Astrology - Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846481-9780648002376-lucky-astrology-capricorn/"><u>Lucky Astrology - Capricorn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846483-9780648002321-lucky-astrology-leo/"><u>Lucky Astrology - Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846765-9781944855062-medieval-heresy-and-the-inquisition/"><u>Medieval Heresy and the Inquisition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846596-9780994540492-mind-chatter-that-matters-2nd-ed/"><u>Mind Chatter That Matters (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846673-9781941065280-not-what-we-appear-to-be/"><u>Not What We Appear To Be | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209846622-9781943131730-passion-believe-in-yourself-and-achieve-your-dreams-an-unexplained-phenomenon/"><u>Passion. Believe in Yourself and Achieve Your Dreams. An Unexplained Phenomenon. | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

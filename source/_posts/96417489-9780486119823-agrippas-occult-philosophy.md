@@ -1,7 +1,7 @@
 ---
 title: Agrippa's Occult Philosophy | Free Book
-date: 2025-02-02T17:22:32.615Z
-updated: 2025-02-03T18:36:31.569Z
+date: 2025-02-11T16:41:19.051Z
+updated: 2025-02-15T23:36:26.819Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a624dcfc8e3eee4fe5b5b8caff153a4adb9e.jpg
@@ -149,18 +149,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/04c4ffa13f6a1d11cd5d20e5b754a62
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1124270-9781619400153-a-true-story-of-startling-seances-in-san-francisco/"><u>A True Story of Startling Seances in San Francisco | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124261-9781619400733-sister-masons-a-burlesque-in-one-act/"><u>Sister Masons: A Burlesque in One Act: | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124263-9781619400405-snake-charming/"><u>Snake Charming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124259-9781619400467-the-repairer-of-reputations/"><u>The Repairer of Reputations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124260-9781619400924-the-sepher-yetzirah-of-rabbi-ben-clifford/"><u>The Sepher Yetzirah of Rabbi Ben Clifford | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124264-9781619400474-the-sons-of-osiris-a-side-degree/"><u>The Sons of Osiris: A Side Degree | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124271-9781619400689-the-truth-about-telepathy/"><u>The Truth About Telepathy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124277-9781619400290-the-werewolf-of-the-north/"><u>The Werewolf of the North | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124275-9781619400092-water-wizardry/"><u>Water Wizardry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290864-9781645690481-endurance-race-of-life-and-addiction/"><u>Endurance Race of Life and Addiction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290878-9781098044190-i-stuff-my-braso-what/"><u>I Stuff My Bra...So What? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290940-9781644920350-im-not-a-hypocrite-im-human/"><u>I'm Not a Hypocrite I'm Human | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210291321-9781098064754-it-shouldnt-be-in-the-church/"><u>IT Shouldn't Be in the Church | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290967-9781098018009-praise-god-first/"><u>Praise God First | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210290961-9781645694946-rest/"><u>R.E.S.T. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210291829-9781644922835-with-a-humble-heart/"><u>With a Humble Heart | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

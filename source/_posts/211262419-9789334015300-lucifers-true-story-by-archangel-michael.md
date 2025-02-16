@@ -1,7 +1,7 @@
 ---
 title: Lucifer's True Story by Archangel Michael | Free Book
-date: 2024-10-19T19:58:39.590Z
-updated: 2024-10-26T18:04:42.223Z
+date: 2025-02-15T02:44:18.856Z
+updated: 2025-02-16T00:07:03.606Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c92593ae26f82e2353725502526b520aa38e76d130e90efce4e29c5dd1f37563.jpg
@@ -220,3 +220,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c92593ae26f82e2353725502526b520
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1685627-9781609259433-a-spirit-walkers-guide-to-shamanic-tools/"><u>A Spirit Walker's Guide to Shamanic Tools | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1684767-9781780288413-chakra-wisdom-oracle-toolkit/"><u>Chakra Wisdom Oracle Toolkit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1691130-9781459729957-haunted-incredible-true-stories-of-ghostly-encounters-2-book-bundle/"><u>Haunted — Incredible True Stories of Ghostly Encounters 2-Book Bundle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1691963-9780804152358-shamanism-as-a-spiritual-practice-for-daily-life/"><u>Shamanism As a Spiritual Practice for Daily Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1687915-9781583947920-the-ayahuasca-test-pilots-handbook/"><u>The Ayahuasca Test Pilots Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1688976-9781317787136-the-psychospiritual-clinicians-handbook/"><u>The Psychospiritual Clinician's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1689042-9781317760580-the-therapists-notebook-for-integrating-spirituality-in-counseling-ii/"><u>The Therapist's Notebook for Integrating Spirituality in Counseling II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1691534-9781782791676-witchcraft-today-60-years-on/"><u>Witchcraft Today - 60 Years On | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1691535-9781782793489-your-simple-path/"><u>Your Simple Path | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

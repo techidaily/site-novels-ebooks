@@ -1,7 +1,7 @@
 ---
 title: Thoughts I Met On the Highway | Free Book
-date: 2025-01-31T18:50:40.653Z
-updated: 2025-02-03T18:01:54.371Z
+date: 2025-02-10T23:44:43.912Z
+updated: 2025-02-16T00:58:34.815Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550bd79eac615dd500c2c1ab152c21713f37.jpg
@@ -137,13 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95842528-9781788284554-discover-meditation-mindfulness/"><u>Discover Meditation & Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842534-9781788286527-hauntings/"><u>Hauntings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842530-9781788284523-the-complete-book-of-dreams/"><u>The Complete Book of Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842529-9781788284547-the-complete-book-of-healing/"><u>The Complete Book of Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210014271-9781473581180-bloom-thrive/"><u>Bloom & Thrive | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210014929-9780593355459-circle-round/"><u>Circle Round | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210014702-9781493044788-spooky-pennsylvania-2nd-ed/"><u>Spooky Pennsylvania (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210014269-9781473581173-you-are-a-rainbow/"><u>You Are A Rainbow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210014273-9781473581470-you-are-cosmic-code/"><u>You Are Cosmic Code | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

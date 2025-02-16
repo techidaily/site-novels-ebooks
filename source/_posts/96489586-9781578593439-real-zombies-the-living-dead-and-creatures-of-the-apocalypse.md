@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2025-01-31T16:54:32.481Z
-updated: 2025-02-03T16:00:29.093Z
+date: 2025-02-11T01:00:30.951Z
+updated: 2025-02-15T21:04:10.310Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8acb8768f6a1f7e1bcb1fc1aa87c34424fe3.jpg
@@ -236,16 +236,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e26d74059bfaf23e68b8711a18df8ac
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96317084-9781401939274-a-rebel-chick-mystics-guide/"><u>A Rebel Chick Mystic's Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317080-9781401931995-beyond-happiness/"><u>Beyond Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317068-9781401929718-born-knowing/"><u>Born Knowing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317066-9781401928629-inspired-destiny/"><u>Inspired Destiny | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317073-9781401933036-the-nature-of-good-and-evil/"><u>The Nature of Good and Evil | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317070-9781401933227-trust-your-vibes-at-work-and-let-them-work-for-you/"><u>Trust Your Vibes At Work, And Let Them Work For You! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317093-9781401942434-your-hidden-symmetry/"><u>Your Hidden Symmetry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210168847-9781838219130-angels-in-our-territory/"><u>ANGELS IN OUR TERRITORY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210167612-9781643506692-dreams-and-symbols/"><u>Dreams and Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210169351-9780744041149-intuition/"><u>Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210168351-9781735943114-now-what-a-quick-guide-to-help-you-rise-when-life-knocks-you-down/"><u>Now What? A quick guide to help you rise when life knocks you down | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210167653-9781684096244-on-the-other-hand/"><u>On the Other Hand | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210167682-9781684097401-telling-it/"><u>Telling It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210168549-9781647018047-through-the-eyes-of-nisey/"><u>Through the Eyes of Nisey | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "The Key of Solomon the King: Clavicula Salomonis | Free Book"
-date: 2025-01-31T17:22:06.066Z
-updated: 2025-02-03T17:24:36.100Z
+date: 2025-02-11T19:41:39.755Z
+updated: 2025-02-15T20:01:21.518Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e8f90c50108afc682abdd02448146206d2.jpg
@@ -145,16 +145,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1003122-9780857010858-fire-dragon-meridian-qigong/"><u>Fire Dragon Meridian Qigong | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1010630-9781780993157-good-living-in-hard-times/"><u>Good Living in Hard Times | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1010633-9781780993492-pagan-portals-hedge-riding/"><u>Pagan Portals - Hedge Riding | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1010634-9781780993300-pagan-portals-hedge-witchcraft/"><u>Pagan Portals - Hedge Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1010635-9781780997865-palmistry-made-easy/"><u>Palmistry Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1010636-9781780993973-psychology-of-a-medium/"><u>Psychology of a Medium | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1010637-9781780991634-the-angels-book-of-promises/"><u>The Angels' Book of Promises | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266263-9781644114513-how-to-become-a-mermaid/"><u>How to Become a Mermaid | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266261-9781644114070-machine-intelligence-and-the-imaginal-realm/"><u>Machine Intelligence and the Imaginal Realm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266260-9781644113769-making-the-ordinary-extraordinary/"><u>Making the Ordinary Extraordinary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210267033-9780956317933-relearning-experience-to-resolve-emotional-problems/"><u>Relearning Experience to Resolve Emotional Problems | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266258-9781644113691-tantric-psychophysics-2nd-ed/"><u>Tantric Psychophysics (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266264-9781644113783-the-bavarian-illuminati/"><u>The Bavarian Illuminati | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266257-9781644113158-the-chintamani-crystal-matrix/"><u>The Chintamani Crystal Matrix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266262-9781644114117-wetiko/"><u>Wetiko | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on Vibrations | Free Book
-date: 2025-02-02T17:43:00.222Z
-updated: 2025-02-03T17:37:23.672Z
+date: 2025-02-13T16:11:46.151Z
+updated: 2025-02-16T00:20:42.332Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b0c92b48141753b59d9c88fdfc5535059efc28d07ed5501f222c0f4085ec0eb6.jpg
@@ -134,17 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b0c92b48141753b59d9c88fdfc55350
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138544983-9781401949976-a-course-in-miracles-made-easy/"><u>A Course in Miracles Made Easy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544984-9781401941734-celebrating-the-universe/"><u>Celebrating the Universe! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544621-9781547545513-chaos-magic/"><u>Chaos Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544978-9781401928650-colors-numbers/"><u>Colors & Numbers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544653-9781547547944-een-nacht-in-annwn/"><u>Een Nacht in Annwn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544996-9781401925055-fractal-time/"><u>Fractal Time | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544964-9781401926687-spontaneous-evolution/"><u>Spontaneous Evolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544962-9781401924881-the-13th-step/"><u>The 13th Step | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355825-9781644113943-becoming-a-garment-of-isis/"><u>Becoming a Garment of Isis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355820-9781644113011-flower-essences-from-the-witchs-garden/"><u>Flower Essences from the Witch's Garden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355826-9781644113998-love-in-the-time-of-impermanence/"><u>Love in the Time of Impermanence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355829-9781644114131-peacock-angel/"><u>Peacock Angel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355819-9781644112977-the-light-of-god-2nd-ed/"><u>The Light of God (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355823-9781644113370-the-path-of-elemental-witchcraft/"><u>The Path of Elemental Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210355821-9781644113127-the-twilight-of-pluto/"><u>The Twilight of Pluto | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Unwavering Focus: Journey to Excellence through Philippians 3 | Free Book"
-date: 2024-10-25T18:53:04.240Z
-updated: 2024-10-26T16:12:21.505Z
+date: 2025-02-14T16:15:33.034Z
+updated: 2025-02-15T22:28:52.486Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/86563246f8ab113148be4977d8d714d02382435ffe9a4eb5a91c5d54243f1295.jpg
@@ -216,3 +216,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/86563246f8ab113148be4977d8d714d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209636296-9781633411128-allow-me-to-introduce/"><u>Allow Me to Introduce | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636294-9781633411142-astrology-for-real-life/"><u>Astrology for Real Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636284-9781633411449-lost-teachings-of-the-runes/"><u>Lost Teachings of the Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636287-9781633411562-magickal-mermaids-and-water-creatures/"><u>Magickal Mermaids and Water Creatures | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636289-9780892546848-navigating-the-financial-universe/"><u>Navigating the Financial Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636286-9781633411425-the-magic-of-marie-laveau/"><u>The Magic of Marie Laveau | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636291-9781938289880-the-medicine-bag/"><u>The Medicine Bag | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636277-9781633411234-the-morrigan/"><u>The Morrigan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636276-9781633411401-third-eye-meditations/"><u>Third Eye Meditations | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

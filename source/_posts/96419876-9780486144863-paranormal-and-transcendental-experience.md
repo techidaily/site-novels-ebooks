@@ -1,7 +1,7 @@
 ---
 title: Paranormal and Transcendental Experience | Free Book
-date: 2025-01-30T18:02:11.239Z
-updated: 2025-02-03T17:16:03.537Z
+date: 2025-02-12T20:09:41.049Z
+updated: 2025-02-15T23:38:00.428Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/56ef1a0d4ea98c7a013cb4c61c4a858be456feab2af71507ceb8cba5237ffe9a.jpg
@@ -138,15 +138,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/56ef1a0d4ea98c7a013cb4c61c4a858
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125848-9781609254247-light-on-relationships/"><u>Light on Relationships | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125870-9781609255398-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125873-9781609257194-maat-magick/"><u>Maat Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125875-9781609250188-magic-when-you-need-it/"><u>Magic When You Need It | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125853-9781609254513-the-little-book-of-life-after-death/"><u>The Little Book of Life After Death | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125874-9781609255848-the-magic-of-shapeshifting/"><u>The Magic of Shapeshifting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210299275-9781644688953-did-memaw-go-to-heaven/"><u>Did Memaw Go to Heaven? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210298927-9781646702503-first-trust-your-guide-from-rags-to-riches/"><u>First Trust: Your Guide from Rags to Riches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210299110-9781645590798-holy-spirit-help/"><u>Holy Spirit-Help! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210298918-9781646707065-joe/"><u>Joe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210298939-9781644684986-lessons-learnt/"><u>Lessons Learnt | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

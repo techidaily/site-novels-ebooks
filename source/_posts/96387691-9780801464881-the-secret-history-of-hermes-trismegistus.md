@@ -1,7 +1,7 @@
 ---
 title: The Secret History of Hermes Trismegistus | Free Book
-date: 2025-01-29T18:33:57.670Z
-updated: 2025-02-03T18:26:03.667Z
+date: 2025-02-08T17:17:10.611Z
+updated: 2025-02-15T22:10:07.780Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aadfdbb37c812e60420b0e51e5081c63ff8.jpg
@@ -214,18 +214,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30264d23596ba8754eeb273679322aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126973-9781612830124-healing-lost-souls/"><u>Healing Lost Souls | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126982-9781612831848-how-to-pray-without-talking-to-god/"><u>How to Pray Without Talking to God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126987-9781612830001-im-spiritual-dammit/"><u>I'm Spiritual, Dammit! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127009-9781612831992-lessons-out-of-the-body/"><u>Lessons Out of the Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127018-9781612831640-marilyn-monroe-returns/"><u>Marilyn Monroe Returns | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126965-9781612830339-the-ghost-who-would-not-die/"><u>The Ghost Who Would Not Die | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127003-9781612832777-the-journey-of-robert-monroe/"><u>The Journey of Robert Monroe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127011-9781612831305-the-little-book-of-true-ghost-stories/"><u>The Little Book of True Ghost Stories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127015-9781612832340-the-lost-secret-of-death/"><u>The Lost Secret of Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210325289-9781982150464-at-heavens-door/"><u>At Heaven's Door | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324522-9780995755543-heal-your-home-2/"><u>Heal Your Home 2 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324529-9781647467852-living-without-skin/"><u>Living Without Skin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324578-9781801345224-lucid-dreaming-astral-projection-made-easy/"><u>Lucid Dreaming & Astral Projection Made Easy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210325000-9781510768109-the-modern-witchs-guide-to-natural-magick/"><u>The Modern Witch's Guide to Natural Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324985-9781507217573-the-modern-witchcraft-guide-to-runes/"><u>The Modern Witchcraft Guide to Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324993-9781507217948-the-witchs-guide-to-wellness/"><u>The Witch's Guide to Wellness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210324577-9780645173611-waking-wisdom/"><u>WAKING WISDOM | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

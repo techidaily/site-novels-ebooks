@@ -1,7 +1,7 @@
 ---
 title: "The Mind: a beautiful servant, a dangerous master | Free Book"
-date: 2025-02-01T16:03:22.976Z
-updated: 2025-02-03T18:14:49.117Z
+date: 2025-02-15T02:47:25.758Z
+updated: 2025-02-15T22:22:52.006Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9e5993f39e63446a08a902e0222a4e0b5d.jpg
@@ -167,14 +167,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96489219-9780907791607-ayahuasca-reader-2nd-ed/"><u>Ayahuasca Reader (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96489275-9780990997818-blazing-splendor/"><u>Blazing Splendor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96489220-9780907791676-changing-our-minds/"><u>Changing Our Minds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96487360-9781785357534-travelling-the-fairy-path/"><u>Travelling the Fairy Path | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96489225-9780907791638-zig-zag-zen/"><u>Zig Zag Zen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228254-9781736107416-choosing-wellness/"><u>Choosing Wellness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210224056-9781684038916-mood-magick/"><u>Mood Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210224094-9781644249840-sammy-and-the-angels/"><u>Sammy and the Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228534-9781838141110-signposts-to-source/"><u>Signposts to Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210224933-9780857909817-the-diary-of-archie-the-alpaca/"><u>The Diary of Archie the Alpaca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210224035-9781684037162-the-science-of-channeling/"><u>The Science of Channeling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210228445-9781638215479-this-is-pk-mind-over-matter-2nd-ed/"><u>This Is "PK " Mind Over Matter (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

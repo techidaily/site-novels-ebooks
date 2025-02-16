@@ -1,7 +1,7 @@
 ---
 title: The Quantum-Karmic Multiverse | Free Book
-date: 2024-10-19T17:18:28.186Z
-updated: 2024-10-27T01:50:07.985Z
+date: 2025-02-10T19:54:13.680Z
+updated: 2025-02-15T20:49:00.476Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/76b7f982eee5328652a7aef31274290d76afa5f8d4e5df6cb00f105e0d489112.jpg
@@ -176,3 +176,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/76b7f982eee5328652a7aef31274290
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1969559-9780804181044-angel-power/"><u>Angel Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1980053-9781583947333-mystery-school-in-hyperspace/"><u>Mystery School in Hyperspace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1981015-9781609259877-the-evidence-for-phantom-hitch-hikers/"><u>The Evidence for Phantom Hitch-Hikers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1973644-9780895565389-the-master-game/"><u>The Master Game | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1985245-9781476788050-the-soul-searchers-handbook/"><u>The Soul Searcher's Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1981013-9781609259853-the-travelers-guide-to-the-astral-plane/"><u>The Traveler's Guide to the Astral Plane | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1964089-9781782797920-traditional-witchcraft-and-the-path-to-the-mysteries/"><u>Traditional Witchcraft and the Path to the Mysteries | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

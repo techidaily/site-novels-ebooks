@@ -1,7 +1,7 @@
 ---
 title: Planetary Influences & Sojourns | Free Book
-date: 2025-01-27T16:55:48.555Z
-updated: 2025-02-03T16:57:04.760Z
+date: 2025-02-12T23:28:25.102Z
+updated: 2025-02-15T19:51:08.065Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8cc0d31788a134e7b186a2807cf0d31ce6.jpg
@@ -139,18 +139,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8d847145f46558995960c7ada3ec2a8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1220040-9780892546220-amulets-talismans-and-magical-jewelry/"><u>Amulets, Talismans, and Magical Jewelry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221614-9781780997155-awaken-your-inner-faerie-in-30-days/"><u>Awaken Your Inner Faerie In 30 Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221615-9781780998916-beyond-god/"><u>Beyond God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1221618-9781780996486-dear-poppyseed/"><u>Dear Poppyseed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1220547-9781776526796-occultism-and-common-sense/"><u>Occultism and Common-Sense | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1219264-9780698147850-stitches/"><u>Stitches | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1219217-9781101633731-the-book-of-knowing-and-worth/"><u>The Book of Knowing and Worth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1220041-9780892545605-the-book-of-lilith/"><u>The Book of Lilith | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1219168-9781101620274-whole-health/"><u>Whole Health | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349461-9782226304094-deviens-qui-tu-es/"><u>Deviens qui tu es | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349423-9782226303141-lesprit-du-yoga/"><u>L'Esprit du yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349479-9782226290700-la-voie-du-tarot/"><u>La Voie du tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349424-9782226291202-le-reve-eveille-libre/"><u>Le Rêve éveillé libre | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349438-9782226304278-les-attentives/"><u>Les Attentives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349457-9782226303028-oser-la-bienveillance/"><u>Oser la bienveillance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349411-9782226303165-paroles-de-verite/"><u>Paroles de vérité | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349376-9782226290595-un-homme-trahi/"><u>Un homme trahi | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

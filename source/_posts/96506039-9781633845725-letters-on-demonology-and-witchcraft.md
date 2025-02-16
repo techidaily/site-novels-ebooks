@@ -1,7 +1,7 @@
 ---
 title: Letters on Demonology and Witchcraft | Free Book
-date: 2025-02-02T18:31:54.176Z
-updated: 2025-02-03T17:26:17.013Z
+date: 2025-02-13T18:44:42.567Z
+updated: 2025-02-16T00:30:27.042Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a76f0014b78fcc8915b310ff989b93ab4d9.jpg
@@ -155,16 +155,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95841706-9781881098454-dame-fortunes-wheel-tarot/"><u>Dame Fortune's Wheel Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95841442-9781683253914-el-jardin-feng-shui/"><u>El jardin Feng shui | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95841466-9781683254164-entre-en-los-misterios-de-la-numerologia/"><u>Entre en… los misterios de la numerología | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842086-9781936012374-humanitys-spiritual-crisis/"><u>Humanity's Spiritual Crisis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95841436-9781683253853-las-claves-del-esoterismo/"><u>Las Claves del Esoterismo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95841471-9781683254218-mejora-tu-autoestima/"><u>Mejora tu autoestima | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842069-9781888729832-modern-esoteric/"><u>Modern Esoteric | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210012119-9781547545506-arricchirsi-giocando-alla-lotteria/"><u>Arricchirsi giocando alla lotteria | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210014237-9781789046885-going-within-in-a-time-of-crisis/"><u>Going Within in a Time of Crisis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210012145-9781071539156-megan-va-de-excursion/"><u>Megan va de excursión | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210012062-9781071539590-megan-y-el-ciclista/"><u>Megan y el ciclista | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210012162-9781071540077-megans-grootouders-komen-op-bezoek/"><u>Megan’s Grootouders Komen op Bezoek | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210012029-9781071539293-productividad-la-guia-definitiva-para-aumentar-su-productividad-y-formas-de-vencer-la-dilacion/"><u>Productividad: La Guía Definitiva Para Aumentar Su Productividad Y Formas De Vencer La Dilación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210014268-9781473583443-you-are-loved/"><u>You Are Loved | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2025-01-31T16:36:41.922Z
-updated: 2025-02-03T16:36:29.573Z
+date: 2025-02-08T16:17:40.880Z
+updated: 2025-02-15T21:42:02.813Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,17 +137,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95810540-9781507143643-arcanos-maiores-do-tarot-o-seu-significado-sem-recorrer-a-memoria/"><u>Arcanos Maiores do Tarot: o seu significado sem recorrer à memória. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95809100-9781944529123-precognition-and-retrocognition/"><u>Precognition and Retrocognition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95809797-9781507143513-predictive-astrology-a-new-discovery-in-the-transits-reading/"><u>Predictive Astrology, a new discovery in the transits reading | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95810344-9781616409777-rightly-dividing-the-word/"><u>Rightly Dividing the Word | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95809905-9781944529253-the-emergence-of-paraphysics-theoretical-foundations/"><u>The Emergence of Paraphysics: Theoretical Foundations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95809320-9781944529093-the-psychic-personality/"><u>The Psychic Personality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95809021-9781944529154-the-psychobiology-of-psi/"><u>The Psychobiology of Psi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95810808-9781786781383-the-shadow-that-seeks-the-sun/"><u>The Shadow That Seeks the Sun | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002044-9781601637611-cosmic-conversations/"><u>Cosmic Conversations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002036-9781601634474-demon-street-usa/"><u>Demon Street, USA | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002042-9781601635303-monster-files/"><u>Monster Files | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002043-9781601634481-strange-electromagnetic-dimensions/"><u>Strange Electromagnetic Dimensions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002049-9781609256401-touching-the-light-day-by-day/"><u>Touching the Light, Day by Day | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

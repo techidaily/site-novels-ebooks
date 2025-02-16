@@ -1,7 +1,7 @@
 ---
 title: "ONE SCARCE MAN:  LOOSED IN HIS HANDS | Free Book"
-date: 2024-10-25T04:21:58.196Z
-updated: 2024-10-27T05:02:35.197Z
+date: 2025-02-14T02:01:38.613Z
+updated: 2025-02-15T23:29:58.211Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3ca52200812776bcc0b4125bf61fca3ac565697563fb60cd4cc494055e6f3760.jpg
@@ -149,3 +149,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3ca52200812776bcc0b4125bf61fca3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138620408-9781722520144-how-to-attract-good-luck-condensed-classics/"><u>How to Attract Good Luck (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620403-9781722520120-how-to-attract-money-condensed-classics/"><u>How to Attract Money (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621174-9781601637383-pleiadian-initiations-of-light/"><u>Pleiadian Initiations of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621167-9781601635105-remnants-of-the-gods/"><u>Remnants of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620412-9781722520267-the-game-of-life-and-how-to-play-it-condensed-classics/"><u>The Game of Life And How to Play it (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620397-9781722520243-the-power-of-your-subconscious-mind-condensed-classics/"><u>The Power of Your Subconscious Mind (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620407-9781722520229-the-secret-of-the-ages-condensed-classics/"><u>The Secret of the Ages (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621060-9781601636126-the-synthesis-effect/"><u>The Synthesis Effect | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138620395-9781722520748-the-very-simple-law-of-attraction/"><u>The Very Simple Law of Attraction | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Ancestral Continuum | Free Book
-date: 2025-01-29T18:37:32.612Z
-updated: 2025-02-03T16:11:10.788Z
+date: 2025-02-14T18:40:49.136Z
+updated: 2025-02-15T22:43:06.793Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffed034a1671ddbfe6e1290d4251a914bf30.jpg
@@ -181,13 +181,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cee3a2369c6965f170afcf3a44afffe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782878-9781594776526-qigong-teachings-of-a-taoist-immortal/"><u>Qigong Teachings of a Taoist Immortal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782867-9781594777820-reiki-energy-medicine/"><u>Reiki Energy Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782851-9781620554180-the-spiritual-mysteries-of-blood/"><u>The Spiritual Mysteries of Blood | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782884-9781594775253-the-warrior-as-healer/"><u>The Warrior As Healer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209973634-9781503612129-intimate-alien/"><u>Intimate Alien | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974000-9781633412101-mountain-conjure-and-southern-root-work/"><u>Mountain Conjure and Southern Root Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974003-9781633411937-personal-magic/"><u>Personal Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209973506-9789629375218-scientific-feng-shui-for-the-built-environment/"><u>Scientific Feng Shui for the Built Environment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209973997-9781633411944-sex-witch/"><u>Sex Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974002-9781633412033-taking-up-the-runes/"><u>Taking Up the Runes | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

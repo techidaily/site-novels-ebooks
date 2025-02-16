@@ -1,7 +1,7 @@
 ---
 title: The Wizard's Guide to Energy Healing | Free Book
-date: 2025-01-27T18:51:22.943Z
-updated: 2025-02-03T18:24:15.309Z
+date: 2025-02-13T20:16:25.620Z
+updated: 2025-02-15T23:33:05.502Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb21ad71431111f228cffb43ed83ba15ec63.jpg
@@ -178,16 +178,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1121187-9781842438213-conspiracy-theories/"><u>Conspiracy Theories | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1121434--el-tarot-intuitivo-del-siglo-xxi/"><u>El tarot intuitivo del siglo XXI | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1121432--entre-en-los-poderes-de-la-parapsicologia/"><u>Entre en… los poderes de la parapsicología | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1121433--entre-en-los-poderes-del-espiritismo/"><u>Entre en… los poderes del espiritismo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1121431--las-ciencias-ocultas/"><u>Las ciencias ocultas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1121425--los-misterios-de-los-venenos/"><u>Los misterios de los venenos | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1121424--los-seres-de-luz/"><u>Los seres de luz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283368-9781098077594-five-years-and-a-million-tears/"><u>Five Years and a Million Tears | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283320-9781722523527-maximize-your-potential-through-the-power-of-your-subconscious-mind-to-develop-self-confidence-and-self-esteem/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind to Develop Self Confidence and Self Esteem | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283319-9781722526757-the-magic-keys/"><u>The Magic Keys | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283288-9782357288003-thrice-greatest-hermes/"><u>Thrice-Greatest Hermes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210283321-9781722526764-your-super-powers/"><u>Your Super Powers! | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

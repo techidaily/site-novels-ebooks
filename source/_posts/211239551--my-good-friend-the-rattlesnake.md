@@ -1,7 +1,7 @@
 ---
 title: My Good Friend the Rattlesnake | Free Book
-date: 2024-10-22T00:33:46.012Z
-updated: 2024-10-26T23:04:42.286Z
+date: 2025-02-14T01:07:44.206Z
+updated: 2025-02-15T23:57:19.461Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2048669981ee21a987928721ca1288b9e792751a4661c00077b0f8bbfaff1f21.jpg
@@ -148,3 +148,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2048669981ee21a987928721ca1288b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209840844-9780990584834-365-daily-vision-nuggets/"><u>365 Daily Vision Nuggets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840920-9780994369321-astrology/"><u>ASTROLOGY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840989-9780984002900-mary-magdalene-beckons/"><u>Mary Magdalene Beckons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840928-9781513602851-nikola-tesla-afterlife-comments-on-paraphysical-concepts-volume-one/"><u>Nikola Tesla: Afterlife Comments on Paraphysical Concepts, Volume One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840981-9780984002931-sublime-union/"><u>Sublime Union | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209840882-9780992433833-the-deeper-the-sorrow-the-stronger-the-spirit/"><u>The Deeper the Sorrow, The Stronger the Spirit | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

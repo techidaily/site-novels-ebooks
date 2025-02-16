@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2025-01-30T18:40:49.221Z
-updated: 2025-02-03T17:18:52.173Z
+date: 2025-02-13T22:21:32.073Z
+updated: 2025-02-15T21:14:40.844Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -170,18 +170,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96499229-9781594733314-dancethe-sacred-art/"><u>Dance—The Sacred Art | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96499241-9781594734533-divining-the-body/"><u>Divining the Body | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96499272-9781594735714-dreamingthe-sacred-art/"><u>Dreaming—The Sacred Art | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96499243-9781594734458-earth-water-fire-air/"><u>Earth, Water, Fire & Air | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96499282-9781594734373-finding-time-for-the-timeless/"><u>Finding Time for the Timeless | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96499393-9781594734021-meditation-its-practices/"><u>Meditation & Its Practices | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96499428-9781580236775-our-dance-with-god/"><u>Our Dance with God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96499466-9781594734588-practicing-the-sacred-art-of-listening/"><u>Practicing the Sacred Art of Listening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96499473-9781594734779-releasing-the-creative-spirit/"><u>Releasing the Creative Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210237038-9781885928320-alchemy-unveiled/"><u>Alchemy Unveiled | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210237613-9780645096316-awakening/"><u>AWAKENING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210236747-9781641604000-brujas/"><u>Brujas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210237037-9781885928337-how-to-develop-your-occult-powers/"><u>How to Develop Your Occult Powers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210237557-9781735026237-the-book-of-jared/"><u>The Book of Jared | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210236353-9780760370841-the-complete-guide-to-astrological-self-care/"><u>The Complete Guide to Astrological Self-Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210237745-9781916045125-witchcraft-and-the-old-religion/"><u>Witchcraft and The Old Religion | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Hey, Holy Spirit, It's Me Again | Free Book
-date: 2025-01-31T16:20:24.449Z
-updated: 2025-02-03T18:38:23.238Z
+date: 2025-02-13T17:05:10.634Z
+updated: 2025-02-15T18:42:59.588Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c156d643e85746633a7219a00d0275ffee12.jpg
@@ -138,16 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c15
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95783093-9781620556436-into-the-mystic/"><u>Into the Mystic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783085-9781620551400-lsd-and-the-divine-scientist/"><u>LSD and the Divine Scientist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783090-9781620553671-magic-mushroom-explorer/"><u>Magic Mushroom Explorer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783088-9781620554623-teachings-of-the-peyote-shamans/"><u>Teachings of the Peyote Shamans | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783098-9781594778711-the-prophets-way/"><u>The Prophet's Way | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783094-9781594779374-the-psilocybin-solution/"><u>The Psilocybin Solution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783097-9781594779367-the-psychedelic-explorers-guide/"><u>The Psychedelic Explorer's Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983774-9781644110522-astrology-for-mystics/"><u>Astrology for Mystics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983775-9781644111192-sacred-geometry-language-of-the-angels/"><u>Sacred Geometry: Language of the Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983779-9781644111291-secrets-of-the-druids-2nd-ed/"><u>Secrets of the Druids (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983778-9781591433750-shamanic-mysteries-of-peru/"><u>Shamanic Mysteries of Peru | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983776-9781644110447-the-lost-pillars-of-enoch/"><u>The Lost Pillars of Enoch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983782-9781620559185-vibrational-nutrition/"><u>Vibrational Nutrition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209983780-9781644111628-vibrational-sound-healing/"><u>Vibrational Sound Healing | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

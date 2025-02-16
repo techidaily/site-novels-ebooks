@@ -1,7 +1,7 @@
 ---
 title: Instructions for Spiritual Living (3rd ed.) | Free Book
-date: 2025-02-02T16:40:09.450Z
-updated: 2025-02-03T18:17:41.609Z
+date: 2025-02-10T17:36:03.454Z
+updated: 2025-02-15T23:24:29.843Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e14410171410bed29ac73d41683847dc4e9f2a7e908d.jpg
@@ -193,13 +193,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/30a4fe540b786c52a498e1441017141
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1127068-9781612830681-questions-and-answers-on-conversations-with-god/"><u>Questions and Answers on Conversations with God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127072-9781612832852-return-of-the-revolutionaries/"><u>Return of the Revolutionaries | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127080-9781612832975-signs-on-the-earth/"><u>Signs on the Earth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127085-9781612830698-soul-agreements/"><u>Soul Agreements | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210330604-9781087974897-healing-growth-and-forgiveness/"><u>Healing, Growth, and Forgiveness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210330462-9781644844670-just-what-the-doctor-ordered/"><u>Just What the Doctor Ordered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210330292-9781647225810-river-of-offerings/"><u>River of Offerings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210330471-9781098072605-under-the-influence/"><u>Under the Influence | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

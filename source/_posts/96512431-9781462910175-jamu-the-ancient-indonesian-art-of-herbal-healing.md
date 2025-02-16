@@ -1,7 +1,7 @@
 ---
 title: "Jamu: The Ancient Indonesian Art of Herbal Healing | Free Book"
-date: 2025-01-31T18:37:03.090Z
-updated: 2025-02-03T16:45:14.627Z
+date: 2025-02-08T23:47:15.345Z
+updated: 2025-02-16T00:48:25.388Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e7857299c6431d2d6cc63a2eb897a8a498fd0ce7.jpg
@@ -175,14 +175,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d2f10a547bb7e05b184f9c72e785729
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782781-9781620550762-numerology/"><u>Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782778-9781620553442-osogbo/"><u>Osogbo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782782-9781620550625-tao-and-tai-chi-kung/"><u>Tao and T'ai Chi Kung | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782779-9781620555170-tao-tantric-arts-for-women/"><u>Tao Tantric Arts for Women | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782780-9781594777912-taoist-astral-healing/"><u>Taoist Astral Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209971338-9780648530503-alchemy-of-awareness/"><u>Alchemy of Awareness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209971365-9781578597154-earth-magic/"><u>Earth Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209971324-9781946533913-mindful-pause/"><u>Mindful Pause | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209971008-9780226923789-the-secrets-of-alchemy/"><u>The Secrets of Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209970967-9780253043696-weird-wild-west/"><u>Weird Wild West | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

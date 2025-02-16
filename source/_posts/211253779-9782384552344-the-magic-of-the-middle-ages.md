@@ -1,7 +1,7 @@
 ---
 title: The Magic of the Middle Ages | Free Book
-date: 2024-10-22T20:15:25.329Z
-updated: 2024-10-27T06:00:44.053Z
+date: 2025-02-11T20:11:07.983Z
+updated: 2025-02-15T20:24:12.731Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fad9fba8d9f014be331efb3c849cbf7c8f901a88f61a3212f1c01f3082da085.jpg
@@ -150,3 +150,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fad9fba8d9f014be331efb3c849cbf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1791392-9781782796206-a-kitchen-witchs-world-of-magical-herbs-plants/"><u>A Kitchen Witch's World of Magical Herbs & Plants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1791396-9781782795254-life-without-elgar/"><u>Life Without Elgar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1790248-9780762789597-spooky-indiana/"><u>Spooky Indiana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1790265-9781493001804-spooky-yellowstone/"><u>Spooky Yellowstone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1790778-9781907203978-words-to-ease-your-soul/"><u>Words to Ease your Soul | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Natural Law in the Spiritual World | Free Book
-date: 2025-01-30T17:53:41.744Z
-updated: 2025-02-03T16:46:01.433Z
+date: 2025-02-10T02:31:39.964Z
+updated: 2025-02-15T21:46:40.777Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/66c5c83e05491b68273e81d7cbbf6958958cca10e64f647f82e013fd8bf669c9.jpg
@@ -143,18 +143,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/66c5c83e05491b68273e81d7cbbf695
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95815759-9781507137307-conversando-com-o-universo/"><u>Conversando com o Universo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95816505-9781944529086-famous-western-sensitives/"><u>Famous Western Sensitives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95816676-9781633410633-old-style-conjure/"><u>Old Style Conjure | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95815738-9781507150887-practical-cartomancy-for-all/"><u>Practical Cartomancy for All | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95816442-9781616405724-psychic-exploration/"><u>Psychic Exploration | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95816440-9781507144015-stop-being-a-dumbass-11-changes-in-21-days-to-live-a-life-of-excellence/"><u>Stop Being a Dumbass 11 Changes in 21 Days to Live a Life of Excellence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95816284-9781944529109-telepathy/"><u>Telepathy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95816429-9781944529246-the-emergence-of-paraphysics-research-and-applications/"><u>The Emergence of Paraphysics: Research and Applications | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95816190-9781616406349-the-poltergeist/"><u>The Poltergeist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210003794-9781761034787-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002470-9781452181622-breathwork/"><u>Breathwork | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002669-9781538135143-mindfulness-in-a-busy-world/"><u>Mindfulness in a Busy World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002105-9781609250836-the-weiser-field-guide-to-cryptozoology/"><u>The Weiser Field Guide to Cryptozoology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002106-9781633410022-you-dont-have-to-die-to-go-to-heaven/"><u>You Don't Have to Die to Go to Heaven | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

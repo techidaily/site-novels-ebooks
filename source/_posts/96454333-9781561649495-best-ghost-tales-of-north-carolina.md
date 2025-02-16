@@ -1,7 +1,7 @@
 ---
 title: Best Ghost Tales of North Carolina | Free Book
-date: 2025-01-31T17:02:21.025Z
-updated: 2025-02-03T18:34:14.935Z
+date: 2025-02-08T16:17:22.944Z
+updated: 2025-02-16T02:31:24.916Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3e535f94a3af6ddee5469bed7bf208c167.jpg
@@ -141,15 +141,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a42cbc5cf44db43cc15afbd1a40e1b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1126894-9781612831213-astral-projection-and-the-nature-of-reality/"><u>Astral Projection and the Nature of Reality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126901-9781612831787-beyond-the-secret/"><u>Beyond the Secret | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126911-9781612830544-chaos-point-2012-and-beyond/"><u>Chaos Point 2012 and Beyond | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126913-9781612832111-closer-than-you-think/"><u>Closer Than You Think | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126915-9781612831169-conversations-with-god-for-teens/"><u>Conversations with God for Teens | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126895-9781612832890-the-astrology-of-great-gay-sex/"><u>The Astrology of Great Gay Sex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210323889-9781098095673-a-pocket-full-of-hope/"><u>A Pocket Full of Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210321212-9781662431081-awakening-to-peace-love-and-happiness/"><u>Awakening to Peace, Love and Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210323996-9781087885872-breathe/"><u>breathe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210321241-9781644624098-breathe/"><u>Breathe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210322699-9781951591564-getting-there-by-being-here/"><u>Getting There By Being Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210322520-9781942125877-the-laws-of-secret/"><u>The Laws of Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210322991-9781645153443-the-rebellious-child/"><u>The Rebellious Child | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

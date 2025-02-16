@@ -1,7 +1,7 @@
 ---
 title: WITCHCRAFT ASTROLOGY GUIDE | Free Book
-date: 2024-10-22T00:51:40.497Z
-updated: 2024-10-27T00:14:45.046Z
+date: 2025-02-15T02:11:17.753Z
+updated: 2025-02-16T01:19:13.116Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3087aac6af698b009b3044edd7ca3e8eac5cf9eecb5992212d955a31199abc83.jpg
@@ -197,3 +197,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3087aac6af698b009b3044edd7ca3e8
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209593970-9781632658159-haindl-tarot-major-arcana-rev-ed/"><u>Haindl Tarot, Major Arcana, Rev Ed. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593570-9781925282344-healing-through-sound-colour-and-movement/"><u>Healing Through Sound, Colour and Movement | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593388-9781922036391-love-equals-power/"><u>Love Equals Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593369-9780909608101-natures-whispers/"><u>Nature's Whispers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593355-9781925416701-synchronicity-and-dreaming/"><u>Synchronicity and Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593306-9780909608194-the-five-principles-of-spiritual-reality/"><u>The Five Principles of Spiritual Reality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593416-9781922175854-the-power-of-your-words/"><u>The Power Of Your Words | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Mind-Body Health and Healing | Free Book
-date: 2025-01-27T16:26:59.525Z
-updated: 2025-02-03T17:27:45.783Z
+date: 2025-02-08T23:21:45.893Z
+updated: 2025-02-15T19:54:24.392Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f23d3c599124f78205037a1acd8e5a8db117bf091c80d351409c4e99f8d0b8f0.jpg
@@ -185,15 +185,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f23d3c599124f78205037a1acd8e5a8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1207455-9781780999579-grimoire-of-a-kitchen-witch/"><u>Grimoire of a Kitchen Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207457-9781780994604-healing-divination/"><u>Healing Divination | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207458-9781780999760-how-to-lavish-a-leo/"><u>How to Lavish a Leo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207181-9781101615669-tapping-into-wealth/"><u>Tapping Into Wealth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1204923-9780307830470-the-pathwork-of-self-transformation/"><u>The Pathwork of Self-Transformation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1207437-9781442222281-the-scientific-basis-of-astrology/"><u>The Scientific Basis of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348892-9782226331113-gurdjieff-et-ar-orage-en-amerique/"><u>Gurdjieff et A.R. Orage en Amérique | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348984-9782226335906-la-mystique-du-silence/"><u>La Mystique du silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210349012-9782226330550-la-sagesse-du-petit-prince/"><u>La Sagesse du Petit Prince | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348887-9782226304872-le-prophete/"><u>Le Prophète | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348843-9782226309730-oedipe-interieur/"><u>Oedipe intérieur | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

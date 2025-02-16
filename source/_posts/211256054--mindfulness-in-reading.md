@@ -1,7 +1,7 @@
 ---
 title: Mindfulness in Reading | Free Book
-date: 2024-10-20T03:38:50.499Z
-updated: 2024-10-26T19:36:40.084Z
+date: 2025-02-09T20:00:48.812Z
+updated: 2025-02-15T19:35:58.041Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2dec284f7b45a70e33e0da055f097daa12dc694967093795f0f8993aed24f3bb.jpg
@@ -149,3 +149,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2dec284f7b45a70e33e0da055f097da
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2065481-9781785350085-live-in-the-moment-including-zen-and-the-art-of-healing/"><u>Live in the Moment, Including Zen and the Art of Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2066236-9781466846067-magicians-of-the-gods/"><u>Magicians of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2065482-9781782797982-pagan-portals-nature-mystics/"><u>Pagan Portals - Nature Mystics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2065485-9781785350818-the-shamanic-handbook-of-sacred-tools-and-ceremonies/"><u>The Shamanic Handbook of Sacred Tools and Ceremonies | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

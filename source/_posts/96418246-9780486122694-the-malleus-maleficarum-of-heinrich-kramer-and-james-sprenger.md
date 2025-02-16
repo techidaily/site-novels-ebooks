@@ -1,7 +1,7 @@
 ---
 title: The Malleus Maleficarum of Heinrich Kramer and James Sprenger | Free Book
-date: 2025-01-29T18:39:31.653Z
-updated: 2025-02-03T18:02:59.336Z
+date: 2025-02-09T23:23:36.168Z
+updated: 2025-02-15T21:55:49.454Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12b6b47c19746a7da8a8930a812472867ca.jpg
@@ -163,13 +163,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23d24979ca7d1506104699b0f8f1f12
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125780-9781609251413-how-to-read-your-astrological-chart/"><u>How to Read Your Astrological Chart | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125785-9781609253134-i-ching-companion/"><u>I Ching Companion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125795-9781609257385-initiation-into-numerology/"><u>Initiation into Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125797-9781609253875-the-inner-planets/"><u>The Inner Planets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297156-9781641910644-building-your-dream-muscle/"><u>Building Your Dream Muscle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297113-9781643497778-choice-takes-no-hostages/"><u>Choice Takes No Hostages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297218-9781643496351-difficult-blessings/"><u>Difficult Blessings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297081-9781643493893-journey-of-a-nurturer/"><u>Journey of a Nurturer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297167-9781644167779-mind-to-heart/"><u>Mind To Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297105-9781641913881-reflections-of-the-heart-of-the-mind-and-of-the-soul/"><u>Reflections of the Heart, of the Mind, and of the Soul | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

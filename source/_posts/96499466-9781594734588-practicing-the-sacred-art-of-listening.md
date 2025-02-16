@@ -1,7 +1,7 @@
 ---
 title: Practicing the Sacred Art of Listening | Free Book
-date: 2025-01-27T17:20:26.613Z
-updated: 2025-02-03T17:53:59.299Z
+date: 2025-02-13T02:52:27.602Z
+updated: 2025-02-15T21:49:13.361Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4cfdc1cf3772ec67232596dda9259a2691.jpg
@@ -167,18 +167,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95935327-9781844098415-healing-crystals/"><u>Healing Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935319-9781844097913-hooponopono-and-family-constellations/"><u>Ho'oponopono and Family Constellations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935331-9781844097869-intuition-on-demand/"><u>Intuition on Demand | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935329-9781844098002-jims-flight/"><u>Jim's Flight | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935330-9781844092536-nature-spirits-elemental-beings-2nd-ed/"><u>Nature Spirits & Elemental Beings (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935321-9781844099085-new-beginnings/"><u>New Beginnings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935333-9781844093625-the-alchemy-of-voice-2nd-ed/"><u>The Alchemy of Voice (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935322-9781844098309-the-little-book-of-dragons/"><u>The Little Book of Dragons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935335-9781844093984-voyage-of-purpose/"><u>Voyage of Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210067800-9781922132499-dying-to-know/"><u>Dying to Know | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210070538-9781532099625-fifty-two-weeks-of-miracles/"><u>Fifty Two Weeks of M.I.R.A.C.L.E.S. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210066908-9780578714646-from-comatose-to-consciousness/"><u>From Comatose To Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210070270-9788121251341-gem-therapy-in-vedic-astrology/"><u>Gem therapy In Vedic Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210069988-9780262297714-meditating-selflessly/"><u>Meditating Selflessly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210067714-9781925275995-turning-inside-out/"><u>Turning Inside Out | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210070317-9788121253673-vibrational-healing-with-gems/"><u>Vibrational Healing With Gems | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

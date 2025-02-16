@@ -1,7 +1,7 @@
 ---
 title: EMPOWERING THE MODERN WITCH | Free Book
-date: 2024-10-25T19:06:49.474Z
-updated: 2024-10-27T05:12:41.771Z
+date: 2025-02-11T19:49:07.477Z
+updated: 2025-02-16T00:59:41.819Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b4deacea731dfe6a878e4086e6467c72a0fb6760cb3bedbe69d9626f38a4c388.jpg
@@ -209,3 +209,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b4deacea731dfe6a878e4086e6467c7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209634843-9781507193976-entendiendo-la-codependencia/"><u>Entendiendo la Codependencia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634870-9781547530946-le-reiki-du-travailleur-de-lumiere/"><u>Le reiki du travailleur de lumière | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634896-9781547571352-meditacao-o-melhor-guia-para-aprender-a-meditar/"><u>Meditação: O Melhor Guia Para Aprender A Meditar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634887-9781547573073-meditazione-una-guida-per-principianti-per-scoprire-il-potere-della-meditazione/"><u>Meditazione: una guida per principianti per scoprire il potere della meditazione | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634946-9781447482642-the-devils-and-evil-spirits-of-babylonia-being-babylonian-and-assyrian-incantations-against-the-demons-ghouls-vampires-hobgoblins-ghosts-and-kindred-evil-spirit/"><u>The Devils and Evil Spirits of Babylonia, Being Babylonian and Assyrian Incantations Against the Demons, Ghouls, Vampires, Hobgoblins, Ghosts, and Kindred Evil Spirits, Which Attack Mankind. Volume I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634945-9781447483199-the-devils-and-evil-spirits-of-babylonia-being-babylonian-and-assyrian-incantations-against-the-demons-ghouls-vampires-hobgoblins-ghosts-and-kindred-evil-spirit/"><u>The Devils And Evil Spirits Of Babylonia, Being Babylonian And Assyrian Incantations Against The Demons, Ghouls, Vampires, Hobgoblins, Ghosts, And Kindred Evil Spirits, Which Attack Mankind. Volume II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209635555-9780525504702-the-inner-work-of-racial-justice/"><u>The Inner Work of Racial Justice | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

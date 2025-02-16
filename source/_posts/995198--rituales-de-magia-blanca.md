@@ -1,7 +1,7 @@
 ---
 title: Rituales de magia blanca | Free Book
-date: 2025-01-30T18:48:12.743Z
-updated: 2025-02-03T18:09:44.073Z
+date: 2025-02-11T21:41:19.928Z
+updated: 2025-02-15T17:17:23.849Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172202ffdc1fb050e9e19fc0128c242ded04.jpg
@@ -136,16 +136,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782537-9781591432180-beowulfs-ecstatic-trance-magic/"><u>Beowulf's Ecstatic Trance Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782534-9781591439103-jesus-after-the-crucifixion/"><u>Jesus after the Crucifixion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782526-9781591439196-the-12th-planet-book-i/"><u>The 12th Planet (Book I) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782527-9781591439325-the-cherokee-full-circle/"><u>The Cherokee Full Circle | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782533-9781591439165-the-lost-realms-book-iv/"><u>The Lost Realms (Book IV) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782530-9781591437581-the-lost-tomb-of-king-arthur/"><u>The Lost Tomb of King Arthur | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782525-9781591438632-the-tutankhamun-prophecies/"><u>The Tutankhamun Prophecies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209919313-9780762470471-calming-magic/"><u>Calming Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209919326-9780762498734-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209918056-9781612437781-live-laugh-lagom/"><u>Live Laugh Lagom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209919166-9781633411951-queering-your-craft/"><u>Queering Your Craft | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

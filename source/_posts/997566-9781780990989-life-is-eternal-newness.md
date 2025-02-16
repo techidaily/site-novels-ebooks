@@ -1,7 +1,7 @@
 ---
 title: Life Is Eternal Newness | Free Book
-date: 2025-01-27T16:19:41.710Z
-updated: 2025-02-03T16:56:30.088Z
+date: 2025-02-08T18:05:02.706Z
+updated: 2025-02-15T23:49:29.824Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/401eadd4a6682fc0a19d06409c8fcef884a5bbafed8e152b63b0fa647d872b6f.jpg
@@ -139,17 +139,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/401eadd4a6682fc0a19d06409c8fcef
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782627-9781594775444-chosen-by-the-spirits/"><u>Chosen by the Spirits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782620-9781594778520-living-in-the-tao/"><u>Living in the Tao | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782632-9781594775468-spirit-of-the-shuar/"><u>Spirit of the Shuar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782622-9781620554975-the-mystery-of-spring-heeled-jack/"><u>The Mystery of Spring-Heeled Jack | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782628-9781594777981-the-new-orleans-voodoo-handbook/"><u>The New Orleans Voodoo Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782629-9781620555484-the-seven-archetypal-stones/"><u>The Seven Archetypal Stones | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782630-9781594776687-the-soundscape/"><u>The Soundscape | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782621-9781620550755-tools-for-tantra/"><u>Tools for Tantra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209939372-9781982154684-contemporary-prayers-to-whatever-works/"><u>Contemporary Prayers to Whatever Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209939413-9781982150273-finding-faeries/"><u>Finding Faeries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209939323-9781646040926-healing-with-shungite/"><u>Healing with Shungite | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209938930-9781946764652-moments-of-joy/"><u>Moments of Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209939379-9781982154233-our-moment-of-choice/"><u>Our Moment of Choice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209938918-9781401960216-plant-witchery/"><u>Plant Witchery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209939416-9781982152208-seasonal-self-care-rituals/"><u>Seasonal Self-Care Rituals | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "SANTA FE: PARANORMAL GUIDE | Free Book"
-date: 2025-01-27T18:18:52.373Z
-updated: 2025-02-03T16:47:45.647Z
+date: 2025-02-12T20:14:01.544Z
+updated: 2025-02-15T16:31:55.086Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08ca84a9e5281d59c500251fb0b1e9155e9.jpg
@@ -134,17 +134,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c58c90dc1cb7b758a118176df513d08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96466894-9781939681133-caught-in-the-act/"><u>Caught In The Act | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96466868-9781586380489-conquest-of-mind-3rd-ed/"><u>Conquest of Mind (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96466885-9781939681201-energy-healing-for-everyone/"><u>Energy Healing for Everyone | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96466876-9781586381172-passage-meditation-a-complete-spiritual-practice-4th-ed/"><u>Passage Meditation - A Complete Spiritual Practice (4th ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96466872-9781586380328-the-mantram-handbook-5th-ed/"><u>The Mantram Handbook (5th ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96466898-9781939681294-the-physics-of-angels/"><u>The Physics of Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96466880-9781939681508-the-wizards-guide-to-energy-healing/"><u>The Wizard's Guide to Energy Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96466887-9781939681454-the-yoga-of-relationships/"><u>The Yoga of Relationships | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210403-9781777318949-2021-year-of-tarot/"><u>2021 Year of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210664-9781722526733-cosmic-habit-force/"><u>Cosmic Habit Force | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210661-9781722526078-romancing-the-soul/"><u>Romancing the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210651-9781722526122-the-power-of-your-transcendental-mind-condensed-classics/"><u>The Power of Your Transcendental Mind (Condensed Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210656-9781722526719-the-secret-formula/"><u>The Secret Formula | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210210663-9781722526696-think-and-grow-rich-and-the-richest-man-in-babylon-with-study-guides/"><u>Think and Grow Rich and The Richest Man in Babylon with Study Guides | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

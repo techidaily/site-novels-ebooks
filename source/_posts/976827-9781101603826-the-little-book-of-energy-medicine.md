@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Energy Medicine | Free Book
-date: 2025-02-02T16:48:02.245Z
-updated: 2025-02-03T18:29:25.911Z
+date: 2025-02-10T16:47:27.728Z
+updated: 2025-02-16T01:58:21.949Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c2aeb5b53f09caa1fb13321987a634dada.jpg
@@ -192,18 +192,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95783013-9781594775642-ayahuasca/"><u>Ayahuasca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783016-9781620551943-ayahuasca-medicine/"><u>Ayahuasca Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783017-9781594775130-cactus-of-mystery/"><u>Cactus of Mystery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783027-9781594777714-chaos-creativity-and-cosmic-consciousness-2nd-ed/"><u>Chaos, Creativity, and Cosmic Consciousness (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783031-9781594775185-green-psychology/"><u>Green Psychology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783028-9781620550571-sharp-spear-crystal-mirror/"><u>Sharp Spear, Crystal Mirror | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783025-9781620555385-the-panic-fables/"><u>The Panic Fables | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783024-9781620551462-the-sense-of-being-stared-at/"><u>The Sense of Being Stared At | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783026-9781594775017-the-shamanic-odyssey/"><u>The Shamanic Odyssey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974920-9781493045792-haunted-arizona-2nd-ed/"><u>Haunted Arizona (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974921-9781493045754-haunted-maryland-2nd-ed/"><u>Haunted Maryland (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974919-9781493046294-haunted-massachusetts-2nd-ed/"><u>Haunted Massachusetts (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209975671-9781506456676-shining-like-the-sun-seven-mindful-practices-for-rekindling-your-faith/"><u>Shining like the Sun: Seven Mindful Practices for Rekindling Your Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209975662-9781317837565-the-forgotten-aged/"><u>The Forgotten Aged | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

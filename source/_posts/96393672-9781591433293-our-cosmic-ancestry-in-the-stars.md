@@ -1,7 +1,7 @@
 ---
 title: Our Cosmic Ancestry in the Stars | Free Book
-date: 2025-01-31T17:29:43.775Z
-updated: 2025-02-03T18:42:13.652Z
+date: 2025-02-12T16:48:34.276Z
+updated: 2025-02-15T21:48:08.052Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d28f5ee9d667ceb5dd7cc313ab504bce05.jpg
@@ -191,17 +191,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/da96363565d73357364b71d9b5c359d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1154039-9781577317258-developing-intuition/"><u>Developing Intuition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154045-9781577318927-dreamgates/"><u>Dreamgates | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154046-9781608680597-dreaming-the-soul-back-home/"><u>Dreaming the Soul Back Home | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154050-9781577312949-echoes-of-the-soul/"><u>Echoes of the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154034-9781608681556-effortless-mind/"><u>Effortless Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154417-9781608680610-everyday-meditation/"><u>Everyday Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154418-9781577319719-expand-this-moment/"><u>Expand This Moment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154267-9780991697533-the-other-side-of-truth/"><u>The Other Side of Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340378-9781952308055-a-moment-alone-with-god/"><u>A Moment Alone with God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340281-9780578946559-i-didnt-ask-for-this-devotional/"><u>I Didn't Ask For This Devotional | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340317-9781641845557-lifes-changeful-interruptions/"><u>Life's Changeful Interruptions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340366-9781914264207-mann-of-two-worlds/"><u>Mann of Two Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340430-9781098081812-the-book/"><u>The Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340607-9781908421517-touching-the-next-horizon/"><u>Touching the Next Horizon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340300-9781948979672-whispers-from-the-hollow-bone/"><u>Whispers from the Hollow Bone | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

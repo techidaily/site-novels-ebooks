@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Scorpio | Free Book
-date: 2024-10-19T18:46:59.958Z
-updated: 2024-10-27T00:28:52.615Z
+date: 2025-02-11T00:59:35.820Z
+updated: 2025-02-16T02:28:48.121Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d9ef4410b5e00641f73989bf34a54042b47ebd95397b78a2876c0ae8f60a25f.jpg
@@ -167,3 +167,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d9ef4410b5e00641f73989bf34a540
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209660919-9781547571185-a-visita-dos-avos-de-megan/"><u>A Visita dos Avós de Megan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660960-9781547574612-el-libro-de-los-pensamientos-volumen-3/"><u>El libro de los pensamientos Volumen 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660969-9781547575596-il-tredicesimo-compleanno-di-megan/"><u>Il Tredicesimo Compleanno Di Megan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660879-9781547574582-meditacao-tecnicas-de-meditacao-para-melhor-sono-tecnicas-de-mindfulness-para-iniciantes/"><u>Meditação : Técnicas De Meditação Para Melhor Sono (Técnicas De Mindfulness Para Iniciantes) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660873-9781547579648-meditacion-aprenda-a-meditar-para-una-experiencia-espiritual-felicidad-y-exito/"><u>Meditación: Aprenda A Meditar Para Una Experiencia Espiritual (Felicidad Y Éxito) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660756-9781547578757-una-mente-plena-a-traves-de-la-guia-de-meditacion-diaria/"><u>Una Mente Plena a Través de la Guía de Meditación Diaria | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

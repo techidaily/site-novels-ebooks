@@ -1,7 +1,7 @@
 ---
 title: Oriental fortune Telling | Free Book
-date: 2025-02-01T16:46:08.214Z
-updated: 2025-02-03T17:02:35.662Z
+date: 2025-02-11T20:17:53.352Z
+updated: 2025-02-15T17:43:59.792Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/853e0b83562cd07ebd9ad022cac2fa9812525ebbe1a6ac377a14372f8984b504.jpg
@@ -147,15 +147,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/853e0b83562cd07ebd9ad022cac2fa9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782764-9781620553022-enochian-magic-and-the-higher-worlds/"><u>Enochian Magic and the Higher Worlds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782766-9781620552032-sexual-practices-of-the-druids-2nd-ed/"><u>Sexual Practices of the Druids (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782761-9781620553794-the-great-work-of-the-flesh/"><u>The Great Work of the Flesh | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782759-9781620552056-the-metaphysical-world-of-isaac-newton/"><u>The Metaphysical World of Isaac Newton | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782762-9781620551592-the-secret-life-of-lady-liberty/"><u>The Secret Life of Lady Liberty | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782760-9781594778391-wisdom-chi-kung/"><u>Wisdom Chi Kung | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966770-9781683692041-crystal-clear/"><u>Crystal Clear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966785-9781401961251-mind-over-medicine-revised-edition/"><u>Mind Over Medicine - REVISED EDITION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966739-9781524749125-philosophy-for-polar-explorers/"><u>Philosophy for Polar Explorers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209968908-9781473355538-the-necromancer-or-the-tale-of-the-black-forest-fantasy-and-horror-classics/"><u>The Necromancer - Or, The Tale of the Black Forest (Fantasy and Horror Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966774-9780834842915-the-posture-of-meditation/"><u>The Posture of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209966743-9780735276833-the-scientist-and-the-psychic/"><u>The Scientist and the Psychic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209967524-9781681779249-the-search-for-atlantis/"><u>The Search for Atlantis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209968914-9781473355545-the-werewolf-in-northern-europe-russia-and-germany-fantasy-and-horror-classics/"><u>The Werewolf In Northern Europe, Russia, and Germany (Fantasy and Horror Classics) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209967347-9781643133904-they-are-already-here/"><u>They Are Already Here | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

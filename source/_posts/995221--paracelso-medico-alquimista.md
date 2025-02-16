@@ -1,7 +1,7 @@
 ---
 title: Paracelso, médico-alquimista | Free Book
-date: 2025-01-27T18:23:03.679Z
-updated: 2025-02-03T18:28:10.319Z
+date: 2025-02-10T00:08:02.922Z
+updated: 2025-02-15T20:55:24.072Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c088bf59588518d9facafbeb86d54a22cd56.jpg
@@ -143,14 +143,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4cb13853d9d44f7e3fc733735f23c08
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782562-9781591439813-advanced-civilizations-of-prehistoric-america/"><u>Advanced Civilizations of Prehistoric America | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782561-9781591438496-astrology-and-the-rising-of-kundalini/"><u>Astrology and the Rising of Kundalini | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782560-9781591432746-sacred-geometry-of-nature/"><u>Sacred Geometry of Nature | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782559-9781591439424-the-giza-prophecy/"><u>The Giza Prophecy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782558-9781591432425-the-global-mind-and-the-rise-of-civilization-2nd-ed/"><u>The Global Mind and the Rise of Civilization (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209920663-9781071520055-556r5ooz44ks5a2m44g2/"><u>瞑想を学ぶ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209920790-9781071518618-como-pensar-por-ti-mismo/"><u>Como pensar por ti mismo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209920857-9781071513477-mediacion-como-alcanzar-la-paz-interior-y-encontrar-felicidad-real/"><u>Mediación: Como Alcanzar La Paz Interior Y Encontrar Felicidad Real | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209920835-9781071514351-meditacao-para-iniciantes/"><u>Meditação para Iniciantes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209920789-9781071520819-meditacion-guia-para-meditar-para-principiantes-para-aumentar-la-energia-vivir-sin-estres/"><u>Meditación : Guía Para Meditar Para Principiantes Para Aumentar La Energía (Vivir Sin Estrés) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209920699-9781071520536-successo-lunico-modo-possibile/"><u>Successo. L`Unico Modo Possibile | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209920914-9780750994408-the-haunting-of-willington-mill/"><u>The Haunting of Willington Mill | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

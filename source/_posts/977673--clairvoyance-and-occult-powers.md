@@ -1,7 +1,7 @@
 ---
 title: Clairvoyance and Occult Powers | Free Book
-date: 2025-01-27T17:04:33.845Z
-updated: 2025-02-03T18:07:04.398Z
+date: 2025-02-12T23:39:33.098Z
+updated: 2025-02-15T18:18:48.590Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53ecf91930305e1c47f7026dbce4b0b0d66.jpg
@@ -133,18 +133,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/63c88790d66e331e6555bc9a2938d53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95783041-9781594778728-ecstasy-the-complete-guide/"><u>Ecstasy: The Complete Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783047-9781594777110-krishna-in-the-sky-with-diamonds/"><u>Krishna in the Sky with Diamonds | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783044-9781594775062-molecular-consciousness/"><u>Molecular Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783037-9781594779671-morphic-resonance-4th-ed/"><u>Morphic Resonance (4th ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783046-9781620551608-peyote-dreams/"><u>Peyote Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783043-9781620550434-phantastica/"><u>Phantastica | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783049-9781620551486-shamanic-quest-for-the-spirit-of-salvia/"><u>Shamanic Quest for the Spirit of Salvia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783048-9781594775109-the-heart-mind-matrix/"><u>The Heart-Mind Matrix | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783045-9781594779923-tryptamine-palace/"><u>Tryptamine Palace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209977859-9780750993494-britains-paranormal-forests/"><u>Britain's Paranormal Forests | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209981287-9781401929831-energy-secrets/"><u>Energy Secrets | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209979108-9781734433104-graceful-reflection/"><u>Graceful Reflection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209977994-9781493047147-haunted-houses-4th-ed/"><u>Haunted Houses (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209980729-9781493046713-haunted-montana/"><u>Haunted Montana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209979619-9781640968110-spiritual-ninja/"><u>Spiritual Ninja | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209981279-9780525541097-the-cosmic-calendar/"><u>The Cosmic Calendar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209978773-9781618521255-the-discovery-tarot-path/"><u>The Discovery Tarot Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209981292-9781788174923-your-secret-laws-of-power/"><u>Your Secret Laws of Power | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Real Miracles, Divine Intervention, and Feats of Incredible Survival | Free Book
-date: 2025-01-27T17:49:51.405Z
-updated: 2025-02-03T17:50:37.199Z
+date: 2025-02-08T18:25:13.148Z
+updated: 2025-02-15T21:50:55.487Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1907b90c959065a95243e28f1716c57ea7dfd2cda2089bb353ab39f65ecb5d50.jpg
@@ -203,16 +203,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1907b90c959065a95243e28f1716c57
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96422485-9780486825625-365-daily-meditations-for-on-and-off-the-mat/"><u>365 Daily Meditations for On and Off the Mat | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96421504-9780486791715-demonolatry/"><u>Demonolatry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96419876-9780486144863-paranormal-and-transcendental-experience/"><u>Paranormal and Transcendental Experience | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96422453-9780486823430-the-book-of-ceremonial-magic/"><u>The Book of Ceremonial Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96422276-9780486816272-the-book-of-luck/"><u>The Book of Luck | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96421970-9780486802985-the-romance-of-sorcery/"><u>The Romance of Sorcery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96421740-9780486111469-the-secret-commonwealth-of-elves-fauns-and-fairies/"><u>The Secret Commonwealth of Elves, Fauns and Fairies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210202532-9781641605748-becoming-a-hollow-bone/"><u>Becoming a Hollow Bone | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203697-9781637958636-exploring-the-galaxy/"><u>Exploring the Galaxy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210202121-9781788174817-healing-is-the-new-high/"><u>Healing Is the New High | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203693-9781637958803-numerology/"><u>Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203588-9780907791867-psychedelic-justice/"><u>Psychedelic Justice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203115-9781528767798-remarkable-spirit-manifestations/"><u>Remarkable Spirit Manifestations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210203636-9781420971620-the-law-of-success/"><u>The Law of Success | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

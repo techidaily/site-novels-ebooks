@@ -1,7 +1,7 @@
 ---
 title: Everyday Awakening | Free Book
-date: 2024-10-19T19:49:03.538Z
-updated: 2024-10-26T19:21:21.497Z
+date: 2025-02-11T23:26:45.373Z
+updated: 2025-02-15T19:20:58.323Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fba247faef9e24103b1d90e84b5a11d0c17357a7c010b81f82af005074c60e86.jpg
@@ -195,3 +195,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fba247faef9e24103b1d90e84b5a11d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2078517-9781476798950-denises-daily-word/"><u>Denise's Daily Word | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2077624-9781607349570-fortune-telling-using-playing-cards/"><u>Fortune Telling Using Playing Cards | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2078465-9781501120244-the-creative-tarot/"><u>The Creative Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2078558-9781476771472-your-body-and-the-stars/"><u>Your Body and the Stars | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

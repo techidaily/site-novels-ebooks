@@ -1,7 +1,7 @@
 ---
 title: "Feng Shui: The Living Earth Manual | Free Book"
-date: 2025-01-30T17:13:11.742Z
-updated: 2025-02-03T18:45:28.784Z
+date: 2025-02-10T17:46:19.592Z
+updated: 2025-02-15T19:16:14.386Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba7221811a6190b1adfba80c343f88ccffedd4.jpg
@@ -148,14 +148,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba722
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95782665-9781620555880-awakening-the-chakras/"><u>Awakening the Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782669-9781594778650-founding-fathers-secret-societies-2nd-ed/"><u>Founding Fathers, Secret Societies (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782664-9781594777547-qabbalistic-magic/"><u>Qabbalistic Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782670-9781620553770-shamanic-healing/"><u>Shamanic Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782666-9781620553169-the-book-of-primal-signs-2nd-ed/"><u>The Book of Primal Signs (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209952090-9781071519851-black-belt/"><u>Black Belt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209951993-9781071513620-meditacao-guia-definitivo-para-uma-vida-de-paz-livre-de-ansiedade-e-cheia-de-felicidades/"><u>Meditação: Guia Definitivo Para Uma Vida De Paz, Livre De Ansiedade E Cheia De Felicidades | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209952025-9781547590445-meditacao-seja-feliz-na-vida-e-livre-se-do-estresse/"><u>Meditação: Seja Feliz Na Vida E Livre-se Do Estresse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209952010-9781071513460-meditacion-guia-de-meditacion-con-meditacion-guiada-mindfulness-para-principiantes/"><u>Meditación: Guía de meditación con meditación guiada (Mindfulness para principiantes) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209951998-9781071513507-meditacion-tecnicas-de-meditacion-guiadas-para-aumentar-la-productividad-y-la-felicidad/"><u>Meditación: Técnicas De Meditación Guiadas Para Aumentar La Productividad Y La Felicidad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209952067-9781071515549-meditacion-tecnicas-de-mindfulness-para-una-meditacion-poderosa/"><u>Meditación: Técnicas De Mindfulness Para Una Meditación Poderosa | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

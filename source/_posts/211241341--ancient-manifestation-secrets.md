@@ -1,7 +1,7 @@
 ---
 title: Ancient Manifestation Secrets | Free Book
-date: 2024-10-25T05:35:51.746Z
-updated: 2024-10-27T03:54:35.935Z
+date: 2025-02-10T00:46:37.132Z
+updated: 2025-02-15T20:52:54.747Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b214361a564b91b387e969b33fe6a66b4a7eb0f569771e850f398483028377a.jpg
@@ -151,3 +151,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b214361a564b91b387e969b33fe6a6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209704925-9781632658203-kitchen-witchs-guide-to-divination/"><u>Kitchen Witch's Guide to Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209703387-9780753733974-the-art-of-simple-living/"><u>The Art of Simple living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209703216-9781401959265-the-big-book-of-angel-tarot/"><u>The Big Book of Angel Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209703718-9781524854454-the-blue-day-book-illustrated-edition/"><u>The Blue Day Book Illustrated Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209704100-9780486840871-the-tarot-of-the-bohemians/"><u>The Tarot of the Bohemians | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209703230-9781623174835-the-twelve-gates/"><u>The Twelve Gates | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

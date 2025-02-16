@@ -1,7 +1,7 @@
 ---
 title: Psychedelic Mysteries of the Feminine | Free Book
-date: 2025-01-31T17:23:46.618Z
-updated: 2025-02-03T16:42:03.149Z
+date: 2025-02-12T00:47:30.795Z
+updated: 2025-02-16T01:05:12.062Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1db2f219d0eb09f04f7d90126590632a4352990196f552dc9c43583ded2e2ad0.jpg
@@ -188,16 +188,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1db2f219d0eb09f04f7d90126590632
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1154537-9781577317050-a-still-small-voice/"><u>A Still, Small Voice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154549-9781608681136-living-in-the-light/"><u>Living in the Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154551-9781577317470-look-for-the-good-and-youll-find-god/"><u>Look for the Good and You'll Find God | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154554-9781608681228-love-has-wings/"><u>Love Has Wings | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154561-9781608681143-meditation-the-complete-guide/"><u>Meditation: The Complete Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154579-9781608680313-one-minute-mindfulness/"><u>One-Minute Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154581-9781608680788-ordinary-sacred/"><u>Ordinary Sacred | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344519--dreams-and-how-to-guide-them/"><u>Dreams and How to Guide Them | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344745-9780008501990-how-to-catch-a-dream-21-ways-to-dream-and-live-bigger-and-better/"><u>How to Catch A Dream: 21 Ways to Dream (and Live) Bigger and Better | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344427-9781647467678-love-wellness-and-happiness/"><u>Love, Wellness, and Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344807-9781493058631-the-big-book-of-california-ghost-stories/"><u>The Big Book of California Ghost Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344377-9781648015571-the-girl-in-the-window/"><u>The Girl in the Window | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344558-9781591812555-the-open-path/"><u>The Open Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344454-9780578751283-the-perks-of-being-terminal/"><u>The Perks of Being Terminal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210343456-9781631599996-the-ultimate-guide-to-shamanism/"><u>The Ultimate Guide to Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210344559-9781591812258-what-is-self/"><u>What Is Self? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce and the Kabbalah | Free Book
-date: 2025-01-27T18:08:10.095Z
-updated: 2025-02-03T16:22:50.405Z
+date: 2025-02-09T02:23:19.573Z
+updated: 2025-02-15T16:29:23.516Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8c81b126d40a3bb0eeceb9ec7b212686194f65e619964bbbc63e450c7505b39c.jpg
@@ -146,16 +146,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8c81b126d40a3bb0eeceb9ec7b21268
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1318738-9781782792000-are-you-happy-now/"><u>Are You Happy Now? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1318743-9781782790129-delayed-departure/"><u>Delayed Departure | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1318745-9781780998589-eternal-way-to-bliss/"><u>Eternal Way to Bliss | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1318746-9781782791003-how-to-listen-to-a-gemini/"><u>How to Listen to a Gemini | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1318755-9781780999371-the-power-of-the-voice/"><u>The Power of the Voice | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1316765-9781881098010-the-witches-almanac-issue-33-spring-2014-spring-2015/"><u>The Witches' Almanac: Issue 33, Spring 2014-Spring 2015 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1318756-9781782791553-traditional-witchcraft-and-the-pagan-revival/"><u>Traditional Witchcraft and the Pagan Revival | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210350255-9782226234766-tout-est-pur-pour-celui-qui-est-pur/"><u> "Tout est pur pour celui qui est pur " | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210350182-9782226232786-lart-de-la-realisation/"><u>L'Art de la réalisation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210350339-9782226234513-le-chemin-des-neuf-mondes/"><u>Le Chemin des neuf mondes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210350335-9782226233080-le-grand-livre-de-la-tendresse/"><u>Le Grand Livre de la tendresse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210350278-9782226234797-manque-et-plenitude/"><u>Manque et plénitude | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210350322-9782226233066-meditation-et-psychotherapie/"><u>Méditation et psychothérapie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210350592-9782226261489-tous-fragiles-tous-humains/"><u>Tous fragiles tous humains | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

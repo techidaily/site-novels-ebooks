@@ -1,7 +1,7 @@
 ---
 title: Finding Ahhh... A Guide to Mindfulness | Free Book
-date: 2024-10-25T20:04:08.673Z
-updated: 2024-10-26T18:27:40.049Z
+date: 2025-02-09T22:01:53.858Z
+updated: 2025-02-15T18:35:57.326Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/551ede5accc0ec3c2da3c94ec6ab09cbeb90b891be3196b41578b62e57127786.jpg
@@ -186,3 +186,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/551ede5accc0ec3c2da3c94ec6ab09c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/195589-9781596255487-an-enquiry-concerning-human-understanding/"><u>An Enquiry Concerning Human Understanding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/194600--antique-affair/"><u>Antique Affair | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/195591-9781596258532-dialogues-concerning-natural-religion/"><u>Dialogues Concerning Natural Religion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1956479-9780812998399-the-light-between-us/"><u>The Light Between Us | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

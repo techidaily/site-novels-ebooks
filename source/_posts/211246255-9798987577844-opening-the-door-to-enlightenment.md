@@ -1,7 +1,7 @@
 ---
 title: Opening the Door to Enlightenment | Free Book
-date: 2024-10-24T05:41:47.674Z
-updated: 2024-10-26T22:56:35.856Z
+date: 2025-02-14T19:42:31.483Z
+updated: 2025-02-15T21:56:39.355Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e637f587558c6867d7fb82bf175231d11ecc1d7f2b038d97da161fe3b7da302a.jpg
@@ -149,3 +149,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e637f587558c6867d7fb82bf175231d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209815496-9781789042429-ancient-teachings-for-modern-times/"><u>Ancient Teachings for Modern Times | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2098150-9781459733473-creepy-capital/"><u>Creepy Capital | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209814593-9781982135539-everything-you-wanted-to-know-about-the-afterlife-but-were-afraid-to-ask/"><u>Everything You Wanted to Know about the Afterlife but Were Afraid to Ask | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209820540-9781743586518-find-your-sparkle/"><u>Find Your Sparkle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209814266-9781783253852-five-minutes-in-the-evening/"><u>Five Minutes in the Evening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209815494-9781789042177-kitchen-witchcraft/"><u>Kitchen Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209815503-9781789041385-the-energetic-dimension/"><u>The Energetic Dimension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209814240-9781856754361-the-little-book-of-spiritual-bliss/"><u>The Little Book of Spiritual Bliss | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209812243-9786171257177-astrologiya-dlya-zhizni-magiya-luny-astrologija-dlja-zhizni-magija-luny/"><u>Астрология для жизни. Магия Луны (Astrologija dlja zhizni. Magija Luny) | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

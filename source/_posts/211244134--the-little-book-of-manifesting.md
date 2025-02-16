@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Manifesting | Free Book
-date: 2024-10-22T23:18:14.259Z
-updated: 2024-10-26T22:55:09.789Z
+date: 2025-02-10T02:04:38.733Z
+updated: 2025-02-16T00:27:06.761Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/df22816af82c5041b461911ad9cd6b27079270414c25634d9ecec998ba60ad58.jpg
@@ -138,3 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/df22816af82c5041b461911ad9cd6b2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209772964-9781440315107-inspiritu-jewelry/"><u>Inspiritu Jewelry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209772117-9781504345187-the-art-of-surrender/"><u>The Art of Surrender | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209772548-9781440349270-the-crystal-bible/"><u>The Crystal Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209770137-9781783253692-the-wellfulness-project/"><u>The Wellfulness Project | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

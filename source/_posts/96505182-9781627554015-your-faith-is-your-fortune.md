@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune | Free Book
-date: 2025-01-28T16:37:43.455Z
-updated: 2025-02-03T16:39:48.885Z
+date: 2025-02-13T23:56:19.797Z
+updated: 2025-02-15T23:10:20.452Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af3da1349f1040f4c4ada5842be7ce239bb.jpg
@@ -142,16 +142,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95947345-9781623173012-changed-in-a-flash/"><u>Changed in a Flash | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95946814-9781925515664-confucius/"><u>Confucius | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95948899-9781785355981-divining-with-animal-guides/"><u>Divining with Animal Guides | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95948900-9781785356636-earth-astrologys-missing-planet/"><u>Earth: Astrology's Missing Planet | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95948905-9781782798439-spiritual-beings-or-economic-tools/"><u>Spiritual Beings or Economic Tools | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95946815-9781925515961-the-book-of-eternity/"><u>The Book of Eternity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95947320-9781786781741-the-premonition-code/"><u>The Premonition Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101239-9781922456014-breakthrough/"><u>BREAKTHROUGH | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101337-9781734337839-hell-no-reincarnation/"><u>Hell No, Reincarnation? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101207-9781913479503-just-be/"><u>Just BE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101435-9781504064545-survival-lessons/"><u>Survival Lessons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101205-9781913479428-the-search-for-mind-body-energy/"><u>The Search for Mind-Body Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210100832-9780648899716-transformation-and-the-golden-keys/"><u>Transformation and the Golden Keys | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210100745-9781646542819-unbreakable/"><u>Unbreakable | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210101227-9781945064272-who-do-you-think-you-are-365-meditations-and-the-books-they-came-from/"><u>Who Do You Think You Are? 365 Meditations and the Books They Came From | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Beginner's Guide to the Akashic Records | Free Book
-date: 2024-10-20T05:19:12.854Z
-updated: 2024-10-27T03:31:18.247Z
+date: 2025-02-09T02:12:50.956Z
+updated: 2025-02-15T23:50:00.940Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/cf76b7ecb41069834796e7340f8295551ad16d5bb50042f27425276771defd6e.jpg
@@ -167,3 +167,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/cf76b7ecb41069834796e7340f82955
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209643391-9780917849732-conversations-with-ernest/"><u>Conversations with Ernest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209642330-9780750990189-devon-ghost-tales/"><u>Devon Ghost Tales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209642550-9781351854146-health-care-spirituality/"><u>Health Care & Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209641275-9781507211496-the-modern-witchcraft-guide-to-magickal-herbs/"><u>The Modern Witchcraft Guide to Magickal Herbs | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

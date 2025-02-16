@@ -1,7 +1,7 @@
 ---
 title: The Seven Elemental Forces of Huna | Free Book
-date: 2025-02-02T18:08:11.789Z
-updated: 2025-02-03T18:44:03.022Z
+date: 2025-02-14T23:09:42.810Z
+updated: 2025-02-15T18:45:20.897Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2ba0078fb6b706370387cf77111f2a1cf2774f26d28a10672b591c6afd98d9f6.jpg
@@ -183,17 +183,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2ba0078fb6b706370387cf77111f2a1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1154426-9781577312857-girls-like-us/"><u>Girls Like Us | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154429-9781577319511-goddesses-for-every-day/"><u>Goddesses for Every Day | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154431-9781932073294-guided-imagery-for-self-healing/"><u>Guided Imagery for Self-Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154432-9781577319054-hand-wash-cold/"><u>Hand Wash Cold | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154433-9781577313502-handbook-for-the-spirit/"><u>Handbook for the Spirit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154438-9781577318354-hands-that-heal/"><u>Hands That Heal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154441-9781932073300-healing-into-possibility/"><u>Healing into Possibility | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1154460-9781608681617-the-last-frontier/"><u>The Last Frontier | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210341278--angels-are-with-you-now/"><u>Angels Are with You Now | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210341150-9781736591741-life-love-lessons-how-to-discover-confidence-through-your-spiritual-journey/"><u>Life & Love Lessons- How to Discover Confidence Through Your Spiritual Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210341417-9781735624433-stillness-touch/"><u>Stillness Touch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340655-9781948626521-the-celestial-code-of-scripture/"><u>The Celestial Code of Scripture | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210340650-9781948626484-the-illusion-of-life-and-death/"><u>The Illusion of Life and Death | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

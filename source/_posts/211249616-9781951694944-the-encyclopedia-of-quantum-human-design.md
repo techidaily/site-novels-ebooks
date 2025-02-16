@@ -1,7 +1,7 @@
 ---
 title: The Encyclopedia of Quantum Human Design | Free Book
-date: 2024-10-22T21:24:13.409Z
-updated: 2024-10-27T05:26:39.769Z
+date: 2025-02-13T00:39:06.728Z
+updated: 2025-02-15T22:10:02.894Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/62b01ff8bf22ceca9dce2b1916acae4911f5cfff7fcb7afaff75d480c6067b37.jpg
@@ -154,3 +154,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/62b01ff8bf22ceca9dce2b1916acae4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209675549-9781789040074-shor-shamanic-epic-folktales/"><u>Shor Shamanic Epic Folktales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209674503-9781528786768-the-greater-trumps/"><u>The Greater Trumps | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209675547-9781782792888-the-magical-sexual-practices-of-ancient-egypt/"><u>The Magical Sexual Practices of Ancient Egypt | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209675538-9781789041545-the-ritual-of-writing/"><u>The Ritual of Writing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209674821-9781472567383-the-roman-mithras-cult/"><u>The Roman Mithras Cult | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209675527-9781452176741-witch-please/"><u>Witch, Please | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Power Of Concentration | Free Book
-date: 2025-02-02T18:20:06.268Z
-updated: 2025-02-03T18:46:54.383Z
+date: 2025-02-14T23:25:53.350Z
+updated: 2025-02-16T02:02:51.867Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e88064405b3f14c791c2674f4c4bbf1d80.jpg
@@ -140,14 +140,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e1a76d3f4ab3b5d8bf025e98b1d064e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/994841-9781780997629-awaken-your-inner-wisdom/"><u>Awaken Your Inner Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/995217--la-caja-de-pandora/"><u>La caja de pandora | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/995139--los-cuerpos-sutiles-del-hombre/"><u>Los cuerpos sutiles del hombre | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/995213-9781781604045-numerologia-sexo-y-amor/"><u>Numerología, sexo y amor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/995198--rituales-de-magia-blanca/"><u>Rituales de magia blanca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210265489-9781647462390-battling-fear-with-faith/"><u>Battling Fear with Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210263145-9781631953859-beyond-the-pale/"><u>Beyond the Pale | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210264794-9780578158822-evolving-times-learn-2-love-2-live-together/"><u>Evolving Times Learn 2 Love 2 Live Together | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210264697-9781642280623-i-am-here/"><u>I Am Here | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210265944-9781476642666-jb-rhine/"><u>J.B. Rhine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210264334-9781594336751-lil-girls/"><u>Lil’ Girls | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210265036-9781087941905-my-grieving-process/"><u>My grieving Process | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210265736-9782017140689-suis-ton-ame-elle-connait-le-chemin/"><u>Suis ton âme, elle connait le chemin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210265796-9781473598478-the-pictorial-key-to-the-tarot/"><u>The Pictorial Key To The Tarot | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

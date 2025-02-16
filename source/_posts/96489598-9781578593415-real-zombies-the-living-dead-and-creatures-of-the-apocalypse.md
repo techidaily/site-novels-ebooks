@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2025-01-31T16:56:55.255Z
-updated: 2025-02-03T17:02:26.426Z
+date: 2025-02-11T01:40:38.816Z
+updated: 2025-02-15T18:18:54.054Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f21074693b0a017feb0e2f2238989b3513.jpg
@@ -238,18 +238,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96317234-9781401932152-conversaciones-con-el-otro-lado/"><u>Conversaciones con el Otro Lado | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317241-9781401931162-dissolving-the-ego-realizing-the-self/"><u>Dissolving the Ego, Realizing the Self | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317247-9781401932510-meditations/"><u>Meditations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317232-9781401929107-resonance/"><u>Resonance | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317250-9781401932749-sacred-ceremony/"><u>Sacred Ceremony | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317243-9781401928940-sara-book-1/"><u>Sara, Book 1 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317249-9781401933470-space-clearing-a-z/"><u>Space Clearing A-Z | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317237-9781401930462-the-mystery-and-magic-of-love/"><u>The Mystery and Magic of Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317231-9781401927875-traveling-at-the-speed-of-love/"><u>Traveling at the Speed of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210174967-9781646546282-archangel-michael-breathes/"><u>Archangel Michael Breathes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210172900-9781736180112-awaken-the-wizard-within-1001-3rd-ed/"><u>Awaken the Wizard Within 1001 (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210173565-9780310124757-fit-for-purpose/"><u>Fit for Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210173120-9781735056319-liquid-love/"><u>Liquid Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210172896-9780985653521-the-healing-network/"><u>The Healing Network | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210173481-9781777370022-unfold-me/"><u>Unfold Me | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

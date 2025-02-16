@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Aquarius | Free Book
-date: 2024-10-23T00:03:24.243Z
-updated: 2024-10-26T20:50:08.476Z
+date: 2025-02-14T02:25:17.856Z
+updated: 2025-02-16T01:52:33.634Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/165be68aee49bd4d7f5207bbb2c0b5c15896f9215262b82b3abff0c7e49720de.jpg
@@ -169,3 +169,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/165be68aee49bd4d7f5207bbb2c0b5c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209660732-9781547573103-a-vida-em-annwn/"><u>A Vida Em Annwn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209659129-9780762494576-buddhas-office/"><u>Buddha's Office | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209658114-9782824632124-ce-que-lau-dela-leur-a-appris/"><u>Ce que l'au-delà leur a appris | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660753-9781547574575-meditacao-guia-passo-a-passo-para-iniciantes-para-a-atencao-plena-e-uma-conexao-mais-profunda-consigo-mesmo/"><u>Meditação: Guia Passo A Passo Para Iniciantes Para A Atenção Plena E Uma Conexão Mais Profunda Consigo Mesmo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209659105-9780738285313-stop-missing-your-life/"><u>Stop Missing Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209658641-9781401949358-the-wisdom-codes/"><u>The Wisdom Codes | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

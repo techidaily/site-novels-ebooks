@@ -1,7 +1,7 @@
 ---
 title: A Witch Alone | Free Book
-date: 2024-10-21T02:07:00.803Z
-updated: 2024-10-26T17:38:33.248Z
+date: 2025-02-13T18:41:07.779Z
+updated: 2025-02-15T23:48:25.552Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ec9838a03eb2de9654e6cd00ca22235c1b8add50fdbebc9319c5f6dea260036e.jpg
@@ -160,3 +160,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec9838a03eb2de9654e6cd00ca22235
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209825624-9781529315981-daily-calm/"><u>Daily Calm | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826509-9780008366360-leo-2021-your-personal-horoscope/"><u>Leo 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826510-9780008366384-libra-2021-your-personal-horoscope/"><u>Libra 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826507-9780008366339-taurus-2021-your-personal-horoscope/"><u>Taurus 2021: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826143-9781507213551-the-green-witchs-grimoire/"><u>The Green Witch's Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209825373-9781797200941-the-rituals/"><u>The Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826508-9780008366377-virgo-2021-your-personal-horoscope/"><u>Virgo 2021: Your Personal Horoscope | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Rediscovered Books) | Free Book
-date: 2025-01-30T16:16:49.115Z
-updated: 2025-02-03T18:31:00.958Z
+date: 2025-02-12T21:37:20.773Z
+updated: 2025-02-15T23:07:03.903Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ade5b91b73d82f57195217177183175f0bf.jpg
@@ -149,17 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95811738-9781944529178-anthropology-and-psychic-research/"><u>Anthropology and Psychic Research | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95812045-9781616406363-astrology-and-your-health/"><u>Astrology and Your Health | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95811244-9781944529277-devices-for-monitoring-nonphysical-energies/"><u>Devices for Monitoring Nonphysical Energies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95811545-9781507172742-la-tua-buona-stella-15-strumenti-per-lavorare-con-la-legge-dellattrazione/"><u>La tua buona stella: 15 strumenti per lavorare con la Legge dell'Attrazione | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95811514-9781944529147-parapsychology-today/"><u>Parapsychology Today | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95810928-9781944529307-psychic-phenomena-and-mystical-experience/"><u>Psychic Phenomena and Mystical Experience | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95811426-9781524758837-real-magic/"><u>Real Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95811630-9781616409128-the-master-key-system/"><u>The Master Key System | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002074-9781609253295-a-magical-course-in-tarot/"><u>A Magical Course in Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002067-9781601637628-encyclopedia-of-haunted-places-revised-edition/"><u>Encyclopedia of Haunted Places, Revised Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002068-9781609259389-hedgewitch-book-of-days/"><u>Hedgewitch Book of Days | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002064-9781609254025-saturn-in-transit/"><u>Saturn in Transit | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

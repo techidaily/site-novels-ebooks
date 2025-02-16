@@ -1,7 +1,7 @@
 ---
 title: The Teachings Of Atlantis - Secrets of the Cosmos | Free Book
-date: 2024-10-19T16:10:38.790Z
-updated: 2024-10-26T21:27:46.870Z
+date: 2025-02-14T22:37:17.772Z
+updated: 2025-02-15T17:29:47.627Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a7012fff129c2e2e9bbee9de251fd92462ce82dd5c0629e2e5fd2ce1619f0d2.jpg
@@ -173,3 +173,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a7012fff129c2e2e9bbee9de251fd9
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209634834-9781547573028-la-meditazione-come-affrontare-stress-e-ansia/"><u>La Meditazione come affrontare stress e ansia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634827-9781547573141-meditacao-um-guia-perfeito-para-obter-paz-e-felicidade-interior/"><u>Meditação : Um Guia Perfeito Para Obter Paz E Felicidade Interior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634773-9781547573172-meditacao-incrivel-guia-para-iniciantes-e-aqueles-que-odeiam-ficar-parados/"><u>Meditação: Incrível Guia Para Iniciantes E Aqueles Que Odeiam Ficar Parados | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634783-9781547535750-trabajador-de-luz-reiki/"><u>Trabajador de Luz Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209634762-9781547563661-uma-noite-em-annwn/"><u>Uma Noite em Annwn | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

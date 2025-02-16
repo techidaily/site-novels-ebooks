@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science (2nd ed.) | Free Book
-date: 2025-01-31T16:01:29.105Z
-updated: 2025-02-03T18:25:38.523Z
+date: 2025-02-09T18:16:39.123Z
+updated: 2025-02-15T20:30:52.206Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673da7b4392ad14ce18efc33a70fab90f3ea5.jpg
@@ -131,18 +131,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95783051-9781620554470-blindspots/"><u>BlindSpots | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783058-9781594778018-darwins-unfinished-business/"><u>Darwin's Unfinished Business | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783061-9781620551684-dmt-and-the-soul-of-prophecy/"><u>DMT and the Soul of Prophecy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783064-9781594779732-dmt-the-spirit-molecule/"><u>DMT: The Spirit Molecule | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783054-9781620554906-dreaming-wide-awake/"><u>Dreaming Wide Awake | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783057-9781594777455-drugs-of-the-dreaming/"><u>Drugs of the Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783062-9781620550496-the-rebirth-of-nature/"><u>The Rebirth of Nature | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783059-9781620551257-the-religion-of-ayahuasca-2nd-ed/"><u>The Religion of Ayahuasca (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783063-9781620554746-the-witches-ointment/"><u>The Witches' Ointment | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209982845-9781071533086-meditacion-como-vencer-el-miedo-la-ira-y-la-depresion/"><u>Meditación: Cómo Vencer El Miedo, La Ira Y La Depresión | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209982833-9781071536711-meditazione-guida-per-principianti-passo-dopo-passo-alla-consapevolezza-e-ad-una-connessione/"><u>Meditazione: Guida Per Principianti Passo Dopo Passo Alla Consapevolezza E Ad Una Connessione | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209982697-9781071536728-meditazione-semplici-tecniche-di-rilassamento/"><u>Meditazione: Semplici Tecniche Di Rilassamento | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209982826-9781071526743-megan-e-a-competicao-culinaria/"><u>Megan e a Competição Culinária | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209982768-9781071536667-megan-en-de-burgemeesteres/"><u>Megan en de Burgemeesteres | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209982868-9781071534502-megan-en-de-vermiste-kat/"><u>Megan en de Vermiste Kat | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209982681-9781071533291-megan-va-a-cabalgar/"><u>Megan Va A Cabalgar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209981294-9781401958084-the-hidden-power-of-emotions/"><u>The Hidden Power of Emotions | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

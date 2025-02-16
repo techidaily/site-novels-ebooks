@@ -1,7 +1,7 @@
 ---
 title: Colonia Espiritual Nuevo Amanecer | Free Book
-date: 2024-10-23T20:01:16.212Z
-updated: 2024-10-26T17:21:07.488Z
+date: 2025-02-15T02:06:31.480Z
+updated: 2025-02-16T02:10:48.207Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/561c74ecaee7d02ca6eed60250f18e58633998ec2a7f6f32723b68fcde435313.jpg
@@ -147,3 +147,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/561c74ecaee7d02ca6eed60250f18e5
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/1821399-9780698193598-choosing-hope/"><u>Choosing Hope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1818255-9781782796701-collecting-feathers/"><u>Collecting Feathers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1818257-9781782797081-death-the-last-god/"><u>Death, the Last God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1818259-9781782797166-of-course/"><u>Of Course! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1816015-9781776586905-practical-psychomancy-and-crystal-gazing/"><u>Practical Psychomancy and Crystal Gazing | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

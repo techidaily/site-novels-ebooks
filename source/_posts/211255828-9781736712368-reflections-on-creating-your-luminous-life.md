@@ -1,7 +1,7 @@
 ---
 title: Reflections on Creating Your Luminous Life | Free Book
-date: 2024-10-22T20:41:17.498Z
-updated: 2024-10-27T01:34:36.162Z
+date: 2025-02-13T19:29:11.961Z
+updated: 2025-02-15T22:03:53.078Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/429c0974e9831938d53673796ff91943580e1fd6e79d7e4fb4f56c9004d50ae8.jpg
@@ -148,3 +148,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/429c0974e9831938d53673796ff9194
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2035871-9780768407303-gateway-to-dreams/"><u>Gateway to Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2032726-9781493012404-haunted-colleges-and-universities/"><u>Haunted Colleges and Universities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2034327-9780813165707-haunted-holidays/"><u>Haunted Holidays | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2032792-9781461746461-spooky-massachusetts/"><u>Spooky Massachusetts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2032790-9781493032488-spooky-texas-2nd-ed/"><u>Spooky Texas (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2035652-9781608683314-the-calm-center/"><u>The Calm Center | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/203145-9780759522060-touched-by-angels/"><u>Touched by Angels | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

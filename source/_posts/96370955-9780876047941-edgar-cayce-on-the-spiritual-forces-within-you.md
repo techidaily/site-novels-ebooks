@@ -1,7 +1,7 @@
 ---
 title: Edgar Cayce on the Spiritual Forces Within You | Free Book
-date: 2025-02-01T17:59:19.865Z
-updated: 2025-02-03T16:45:50.023Z
+date: 2025-02-08T21:04:53.867Z
+updated: 2025-02-15T17:48:55.969Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470b857f14ac64c99772e37190174dfb5c38.jpg
@@ -144,13 +144,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a175ecaf60bc6d859d958492e6eb470
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138553217-9781462907038-body-of-light/"><u>Body of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138553373-9781462911271-japanese-fortune-calendar/"><u>Japanese Fortune Calendar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138553168-9781462907380-simple-ways-to-wellness/"><u>Simple Ways to Wellness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138553150-9781462907854-talking-lightly/"><u>Talking Lightly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210359775-9780987513885-25-universal-laws/"><u>25 Universal Laws | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360018-9781636768915-agents-of-evolution/"><u>Agents of Evolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210359776-9781637303405-cracking-the-healers-code/"><u>Cracking the Healer's Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360023-9781640869721-en-torno-a-la-interaccion-con-los-espiritus/"><u>En torno a la interacción con los espíritus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360096-9781948011617-feng-shui-for-real-estate/"><u>Feng Shui for Real Estate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360061-9781647538880-heart-of-wisdom-new-edition/"><u>Heart Of Wisdom - New Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360037-9780988233690-maluhia-the-happy-city/"><u>Maluhia, The Happy City | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210360085-9781737462248-where-compassion-begins/"><u>Where Compassion Begins | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

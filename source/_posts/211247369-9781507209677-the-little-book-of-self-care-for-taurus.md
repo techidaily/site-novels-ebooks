@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Self-Care for Taurus | Free Book
-date: 2024-10-21T23:13:57.338Z
-updated: 2024-10-26T17:25:58.779Z
+date: 2025-02-14T22:33:03.976Z
+updated: 2025-02-15T21:28:34.081Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7df7dd48b56530e39a5de0428602ae02770825f73c91134dfdb0a2cc23711db7.jpg
@@ -168,3 +168,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7df7dd48b56530e39a5de0428602ae0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209661379-9781547580453-lideranca-motive-seus-funcionarios-e-influencie-facilmente-as-pessoas-para-melhorar-a-tomada-de-decisoes/"><u>Liderança: Motive seus funcionários e influencie facilmente as pessoas para melhorar a tomada de decisões | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209663404-9781632657992-magickal-crafts/"><u>Magickal Crafts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209661351-9781547575725-meditacao-guia-sobre-como-meditar-para-pessoas-ocupadas-para-curar-depressao-ansiedade-e-estresse/"><u>Meditação: Guia Sobre Como Meditar Para Pessoas Ocupadas Para Curar Depressão, Ansiedade E Estresse | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209663988-9781934336298-the-healing-power-of-empathy/"><u>The Healing Power of Empathy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209661312-9781547577439-villfarelsen/"><u>Villfarelsen | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

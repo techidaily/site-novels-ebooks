@@ -1,7 +1,7 @@
 ---
 title: The Planet Mars and Its Inhabitants | Free Book
-date: 2024-10-21T04:10:16.058Z
-updated: 2024-10-27T03:19:14.378Z
+date: 2025-02-08T22:39:23.377Z
+updated: 2025-02-16T02:23:53.603Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ffa4fd8b359b11d283eeb65636016b17427338af38dbae9ea2ca38658c7002e.jpg
@@ -165,3 +165,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ffa4fd8b359b11d283eeb65636016b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209855027-9781775132158-average-is-extraordinary/"><u>Average is Extraordinary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855371-9781936902262-butterfly-soup/"><u>Butterfly Soup | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855451-9781775089131-goddess-reclaimed/"><u>Goddess Reclaimed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209855123-9781946928030-suffering-is-optional/"><u>Suffering is Optional | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

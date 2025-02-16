@@ -1,7 +1,7 @@
 ---
 title: Curanderismo Soul Retrieval | Free Book
-date: 2025-02-01T17:50:25.616Z
-updated: 2025-02-03T17:54:10.381Z
+date: 2025-02-11T16:59:57.269Z
+updated: 2025-02-15T22:28:56.134Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/51e208709fbee44b865ce02ff771ed51578ee401a573874d976459b0dd19d6aa.jpg
@@ -196,13 +196,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/51e208709fbee44b865ce02ff771ed5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1144823-9781609254827-the-platonic-doctrines-of-albinus/"><u>The Platonic Doctrines of Albinus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1144825-9781609258139-the-qabalah-workbook-for-magicians/"><u>The Qabalah Workbook for Magicians | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1144828-9781938289064-the-universe-in-black-and-white/"><u>The Universe in Black and White | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1144830-9781609256159-voodoo-hoodoo-spellbook/"><u>Voodoo Hoodoo Spellbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210336919-9781789046618-a-guide-of-spirits/"><u>A Guide of Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210336917-9781789044041-practically-pagan-an-alternative-guide-to-magical-living/"><u>Practically Pagan - An Alternative Guide to Magical Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210338114-9781649523778-the-human-and-the-divine/"><u>The Human and the Divine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210337062-9780907791966-the-unfolding-self/"><u>The Unfolding Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210336992-9781401962814-the-wisdom-wheel/"><u>The Wisdom Wheel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210337220-9780578870168-your-souls-love/"><u>Your Soul's Love | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

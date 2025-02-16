@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds and Its Attainment | Free Book
-date: 2025-01-29T17:28:12.778Z
-updated: 2025-02-03T16:36:13.484Z
+date: 2025-02-12T01:22:15.970Z
+updated: 2025-02-15T21:02:37.655Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b53de0aded5271db5eb585c3636ab369229.jpg
@@ -138,17 +138,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95881463-9781786781550-a-course-in-mastering-alchemy/"><u>A Course in Mastering Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95881524-9781787131965-crystals/"><u>Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95885077-9781459742147-ghosts-of-niagara-on-the-lake-2nd-ed/"><u>Ghosts of Niagara-on-the-Lake (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95876043-9780525504436-infinite-possibility/"><u>Infinite Possibility | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95882109-9781785355943-the-art-of-freedom/"><u>The Art of Freedom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95881452-9781786781505-the-gate-of-light/"><u>The Gate of Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95884856-9780998688718-the-recognition-sutras/"><u>The Recognition Sutras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95876103-9780525619314-the-signs/"><u>The Signs | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210053468-9780998741420-ama-deus-curando-com-a-energia-sagrado-do-universo/"><u>Ama-Deus Curando com a Energia Sagrado do Universo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210054979-9789389716184-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210054425-9781647533557-in-communication-with-the-deceased/"><u>In Communication With The Deceased | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210055068-9781999216092-magic-in-the-bible/"><u>Magic In The Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210053376-9780648748014-she-walks/"><u>She Walks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210053671-9780982676967-stark-raving-zen/"><u>Stark Raving Zen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210054992-9781946774828-the-emerald-tablet-of-hermes-the-kybalion/"><u>The Emerald Tablet of Hermes & The Kybalion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210054982-9781838024963-the-ultimate-guide-to-the-power-of-chakras/"><u>The Ultimate Guide to the Power of Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210054955-9781999425531-un-manual-ce-5/"><u>Un Manual CE-5 | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

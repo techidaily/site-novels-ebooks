@@ -1,7 +1,7 @@
 ---
 title: HOW AND WHY WE CAME FROM PLANET MARS TO PLANET EARTH | Free Book
-date: 2024-10-22T17:36:31.804Z
-updated: 2024-10-26T17:58:45.699Z
+date: 2025-02-10T19:36:20.888Z
+updated: 2025-02-15T18:46:28.561Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/61a7a66b29d2efb08daba9d536f863ef30f6d27d4ec0040d2c8d90e6fff35b30.jpg
@@ -170,3 +170,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/61a7a66b29d2efb08daba9d536f863e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209522201-9781446357903-a-witches-bible/"><u>A Witches' Bible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522199-9781446357569-apparitions-and-haunted-houses/"><u>Apparitions and Haunted Houses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522186-9781446350058-tales-of-the-supernatural/"><u>Tales of the Supernatural | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209522193-9781446355879-ufos-caught-on-film/"><u>UFOs Caught on Film | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

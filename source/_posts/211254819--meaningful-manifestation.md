@@ -1,7 +1,7 @@
 ---
 title: Meaningful Manifestation | Free Book
-date: 2024-10-19T19:43:50.598Z
-updated: 2024-10-26T18:01:16.312Z
+date: 2025-02-09T19:31:16.919Z
+updated: 2025-02-15T16:09:57.743Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/91b93cdd16e33776ecaab04743ae8d0ae3e15d72562cde543722f50e05fee093.jpg
@@ -146,3 +146,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/91b93cdd16e33776ecaab04743ae8d0
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/2008049-9781780288239-9-secrets-of-successful-meditation/"><u>9 Secrets of Successful Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2028077-9781615648276-asmr/"><u>ASMR | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2010492-9780835631600-fairies-at-work-and-play/"><u>Fairies at Work and Play | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2028045-9781782799498-honey-in-the-river/"><u>Honey in the River | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1991142-9781626251861-mindfulness-for-bipolar-disorder/"><u>Mindfulness for Bipolar Disorder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2006719-9781785351037-naked-being/"><u>Naked Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2028048-9781782799511-opening-love/"><u>Opening Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/202837-9780446930529-the-ufo-enigma/"><u>The UFO Enigma | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

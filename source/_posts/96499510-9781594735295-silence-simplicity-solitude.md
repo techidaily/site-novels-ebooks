@@ -1,7 +1,7 @@
 ---
 title: Silence, Simplicity & Solitude | Free Book
-date: 2025-01-29T18:05:43.159Z
-updated: 2025-02-03T17:17:08.771Z
+date: 2025-02-09T01:25:35.168Z
+updated: 2025-02-15T21:47:46.104Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c79883b6b5454115e6696b97cb8c03c9855.jpg
@@ -145,17 +145,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4fab7373b997cbbeb3a7a0741a827c7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95935350-9781844093212-angel-inspiration/"><u>Angel Inspiration | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935358-9781844093687-choosing-to-be-2nd-ed/"><u>Choosing to Be (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935359-9781844093038-clearing/"><u>Clearing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935345-9781844099566-crafting-a-magical-life/"><u>Crafting a Magical Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935360-9781844093991-earth-alchemy/"><u>Earth Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935357-9781844098088-facing-darkness-finding-light/"><u>Facing Darkness, Finding Light | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935353-9781844099467-the-healing-of-individuals-families-nations/"><u>The Healing of Individuals, Families & Nations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935356-9781844093816-the-order-of-melchizedek/"><u>The Order of Melchizedek | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210078444-9781800190900-100-ways-to-be-kind/"><u>100 Ways to Be Kind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210079622-9780813174518-haunts-of-old-louisville/"><u>Haunts of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210079477-9780813174488-phantoms-of-old-louisville/"><u>Phantoms of Old Louisville | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210079829-9780963009685-psychedelic-psychotherapy/"><u>Psychedelic Psychotherapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210080029-9780806541075-shamanism-for-every-day/"><u>Shamanism for Every Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210077697-9781087896472-the-fight-for-my-life/"><u>THE FIGHT FOR MY LIFE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210079488-9780813137070-the-mystery-chronicles/"><u>The Mystery Chronicles | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210077662-9781945352058-wow-by-junko/"><u>WOW by Junko | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

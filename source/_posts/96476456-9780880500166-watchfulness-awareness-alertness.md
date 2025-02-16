@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2025-01-29T16:43:47.050Z
-updated: 2025-02-03T18:04:13.089Z
+date: 2025-02-12T16:19:27.997Z
+updated: 2025-02-15T16:12:45.000Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -164,13 +164,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96476499-9780880500272-every-human-being-is-a-seeker-of-truth/"><u>Every Human Being Is a Seeker of Truth | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96476498-9780880504379-its-all-about-change/"><u>It's All About Change | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96476495-9780880500401-the-man-with-the-inexplicable-life/"><u>The Man with the Inexplicable Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96476493-9780880500517-the-secret-of-meditation/"><u>The Secret of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210220939-9781736617212-bad-father-good-father/"><u>Bad Father Good Father | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219828-9781460712764-in-plain-sight/"><u>In Plain Sight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210220619-9780593418352-lighting-the-wick/"><u>Lighting the Wick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210219778-9789389253030-mahavir/"><u>Mahavir | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210220930-9781643344591-pequenas-puertas-para-inmenso-pensar-en-recordar/"><u>Pequeñas Puertas Para Inmenso Pensar En Recordar | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

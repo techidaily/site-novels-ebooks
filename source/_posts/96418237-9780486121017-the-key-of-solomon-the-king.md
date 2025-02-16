@@ -1,7 +1,7 @@
 ---
 title: The Key of Solomon the King | Free Book
-date: 2025-01-30T16:47:24.592Z
-updated: 2025-02-03T18:03:02.662Z
+date: 2025-02-12T21:33:16.464Z
+updated: 2025-02-16T02:16:16.865Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b681f4ed1d716ba046e634b447cf98f40ed1c44b2f30a63607a3bc1a044f438d.jpg
@@ -163,18 +163,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b681f4ed1d716ba046e634b447cf98f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125763-9781609253769-hermetic-magic/"><u>Hermetic Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125765-9781609252656-hex-and-spellwork/"><u>Hex and Spellwork | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125769-9781609250485-high-heeled-manners/"><u>High-Heeled Manners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125777-9781609251864-how-to-get-a-good-reading-from-a-psychic-medium/"><u>How to Get a Good Reading from a Psychic Medium | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125745-9781609250157-the-great-shift/"><u>The Great Shift | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125748-9781609254612-the-grimoire-of-armadel/"><u>The Grimoire of Armadel | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125758-9781609252335-the-heart-of-wicca/"><u>The Heart of Wicca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125764-9781609255855-the-hermetic-museum/"><u>The Hermetic Museum | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125768-9781609254582-the-hieroglyphic-monad/"><u>The Hieroglyphic Monad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297057-9781645159742-30-day-journey-to-surviving-the-loss/"><u>30 Day Journey to Surviving the Loss | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210296563-9781645153252-live/"><u>Live | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210296569-9781640287839-me-myself-and-i-can/"><u>Me, Myself, and I Can | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297077-9781642993370-sentenced-to-death/"><u>Sentenced to Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210296570-9781641409391-they-are-coming/"><u>They Are Coming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210296931-9781643490151-who-were-you-yesterday/"><u>Who Were You Yesterday? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

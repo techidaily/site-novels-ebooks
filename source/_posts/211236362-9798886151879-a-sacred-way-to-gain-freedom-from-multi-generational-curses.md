@@ -1,7 +1,7 @@
 ---
 title: A Sacred Way to Gain Freedom from Multi-Generational Curses | Free Book
-date: 2024-10-22T22:22:11.383Z
-updated: 2024-10-26T16:06:01.084Z
+date: 2025-02-13T01:09:41.457Z
+updated: 2025-02-15T21:56:15.704Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7128649b8ecf40a2d6b45503357f5704829f2e9f3a7ae7695a475429f6483bfd.jpg
@@ -147,3 +147,19 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7128649b8ecf40a2d6b45503357f570
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209902040-9780744021424-a-little-book-of-self-care-self-reiki/"><u>A Little Book of Self Care: Self Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209900940-9781623174934-deep-liberation/"><u>Deep Liberation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209900074-9781912892037-sacred-path-book-one/"><u>Sacred Path: Book One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209900071-9781641842280-sheros-journey/"><u>Shero's Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209901478-9781789042191-stalking-white-crows/"><u>Stalking White Crows | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209901105-9781912807345-the-city-of-hermes/"><u>The City of Hermes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209901440-9781528956390-willpower-and-energy-yoganandas-energisation-exercises/"><u>Willpower and Energy: Yogananda's Energisation Exercises | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

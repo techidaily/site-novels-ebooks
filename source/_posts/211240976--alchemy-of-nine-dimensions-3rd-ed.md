@@ -1,7 +1,7 @@
 ---
 title: Alchemy of Nine Dimensions (3rd ed.) | Free Book
-date: 2024-10-24T02:10:21.736Z
-updated: 2024-10-26T21:53:05.451Z
+date: 2025-02-13T19:24:35.120Z
+updated: 2025-02-15T19:23:15.777Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/52d517b33aedde592074a92ca63630716b83e3a6dd79cd9839f471f0dc62dd43.jpg
@@ -159,3 +159,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/52d517b33aedde592074a92ca636307
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209847347-9780646967769-beyond-ascension-2012-2nd-ed/"><u>Beyond Ascension 2012 (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847862-9781910559260-dirty-divine/"><u>Dirty & Divine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847851-9780648002635-journey-of-a-lightworker/"><u>Journey of a Lightworker | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847651-9781628840315-spiritual-awakening/"><u>Spiritual Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209847837-9780994072566-cel-duhovnoe-puteshestvie-vashej-dushi/"><u>Цель: Духовное путешествие вашей души | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: GUÍA DE INICIACIÓN A LA MEDITACIÓN CRISTIANA | Free Book
-date: 2024-10-23T03:33:43.563Z
-updated: 2024-10-27T00:31:25.388Z
+date: 2025-02-13T19:19:57.520Z
+updated: 2025-02-15T21:42:18.936Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e5a63dbd8a7bb43628158bc5fb262a320b470062a535dc020139c745e0541c6b.jpg
@@ -173,3 +173,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e5a63dbd8a7bb43628158bc5fb262a3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209625059-9781250236623-chakras/"><u>Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209622550-9781473374270-clairvoyance-and-occult-powers/"><u>Clairvoyance and Occult Powers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209625071-9781250319319-infinite-potential/"><u>Infinite Potential | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209617649-9781439666302-michigans-haunted-lighthouses/"><u>Michigan's Haunted Lighthouses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209625028-9781510746770-mindfulness-for-surviving-lifes-challenges/"><u>Mindfulness for Surviving Life's Challenges | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209630859-9781785358715-raising-faith/"><u>Raising Faith | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209622957-9780762495726-revolutionary-witchcraft/"><u>Revolutionary Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209630861-9781789040395-sacred-art-a-hollow-bone-for-spirit/"><u>Sacred Art - A Hollow Bone for Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209625088-9781250200464-the-power-of-heart/"><u>The Power of Heart | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

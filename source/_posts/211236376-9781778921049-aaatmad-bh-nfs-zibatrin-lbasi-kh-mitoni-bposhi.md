@@ -1,7 +1,7 @@
 ---
 title: اعتماد به نفس زیباترین لباسی که میتونی بپوشی | Free Book
-date: 2024-10-23T04:34:49.721Z
-updated: 2024-10-26T17:02:00.186Z
+date: 2025-02-15T01:57:31.812Z
+updated: 2025-02-16T00:15:20.290Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/228c1ec23882cd4f722bdcf5fbb4269d4ada1f2ec07fe25fbeafa19f9c512b8a.jpg
@@ -153,3 +153,21 @@ thumbnail: https://thmb-001-ebook.techidaily.com/228c1ec23882cd4f722bdcf5fbb4269
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209904501-9781633410244-find-your-souls-purpose/"><u>Find Your Soul's Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209904514-9781609259501-how-to-survive-life-and-death/"><u>How to Survive Life (and Death) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209904499-9781609251116-i-will-not-die-an-unlived-life/"><u>I Will Not Die an Unlived Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209904291-9781633389304-keep-telling-yourself-that/"><u>Keep Telling YOUrself That | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209908501-9781784281427-mindfulness-for-confidence/"><u>Mindfulness for Confidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209903168-9781788360227-seeing/"><u>Seeing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209903174-9781910027301-spirit-shows-the-way-2nd-ed/"><u>Spirit Shows the Way (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209904672-9781647641634-the-colonization-of-earth-and-the-making-of-mankind/"><u>The Colonization of Earth and the Making of Mankind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209904204-9781786783950-the-living-wisdom-of-trees/"><u>The Living Wisdom of Trees | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

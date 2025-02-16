@@ -1,7 +1,7 @@
 ---
 title: Real Ghosts, Restless Spirits, and Haunted Places | Free Book
-date: 2025-01-27T17:57:15.767Z
-updated: 2025-02-03T16:41:06.508Z
+date: 2025-02-09T19:35:16.270Z
+updated: 2025-02-15T22:49:01.191Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/012fa84b5d06164d52f00543db7e5bfc0f058ccbd270756cad3455b75e0de936.jpg
@@ -280,14 +280,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/012fa84b5d06164d52f00543db7e5bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96192730-9781620558577-introduction-to-magic/"><u>Introduction to Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96192726-9781620558584-men-among-the-ruins/"><u>Men Among the Ruins | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96193305-9781612833811-reading-the-runes/"><u>Reading the Runes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96192729-9781620558546-revolt-against-the-modern-world/"><u>Revolt Against the Modern World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96192725-9781620558539-the-hermetic-tradition/"><u>The Hermetic Tradition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127780-9781761035470-desarrollo-de-las-habilidades-psiquicas/"><u>Desarrollo de las Habilidades Psíquicas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127374-9781789046373-how-to-lead-a-badass-business-from-your-heart/"><u>How to Lead a Badass Business From Your Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127709-9782824633855-les-secrets-du-voyage-astral/"><u>Les secrets du voyage astral | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127151-9781087909561-positive-affirmations-for-women/"><u>Positive Affirmations For Women | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127370-9781506460468-the-ancient-way-discoveries-on-the-path-of-celtic-christianity/"><u>The Ancient Way: Discoveries on the Path of Celtic Christianity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127143-9781950241835-the-gift-of-courage-3rd-ed/"><u>The Gift of Courage (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210127799-9781087915005-to-hell-with-corona/"><u>TO HELL WITH CORONA | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

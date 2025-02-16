@@ -1,7 +1,7 @@
 ---
 title: The Raptured Saints and the Left Behind | Free Book
-date: 2024-10-23T01:40:16.131Z
-updated: 2024-10-26T17:05:24.908Z
+date: 2025-02-10T02:47:34.457Z
+updated: 2025-02-15T17:52:41.973Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/47ae7254274f0eb2d3f2268bb9dd2d793b2f81e97d9be075e592a073afdbf1e1.jpg
@@ -147,3 +147,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/47ae7254274f0eb2d3f2268bb9dd2d7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209883699-9781250212610-alchemy/"><u>Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883655-9781644110751-deva/"><u>Deva | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209884163-9781578596843-haunted/"><u>Haunted | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883726-9781250246431-spirit-translator/"><u>Spirit Translator | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883707-9781250619297-the-kybalion/"><u>The Kybalion | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

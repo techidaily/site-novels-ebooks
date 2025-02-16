@@ -1,7 +1,7 @@
 ---
 title: Nama-Japa in the Yoga of Transformation | Free Book
-date: 2024-10-26T05:39:57.919Z
-updated: 2024-10-27T00:24:30.889Z
+date: 2025-02-10T16:49:59.023Z
+updated: 2025-02-15T20:09:56.911Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba6ef4079ab32ce2726dfee381dbf3eab7d453d6c14e0df68e58a360b7d79b52.jpg
@@ -154,3 +154,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba6ef4079ab32ce2726dfee381dbf3e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/138597731-9781452503448-7-powerful-ways-to-boost-retail-profitsin-any-economic-climate/"><u>7 Powerful Ways to Boost Retail Profits....In Any Economic Climate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597864-9781452554440-angel-works/"><u>Angel Works | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597806-9781452541853-from-fear-to-eternity/"><u>From Fear to Eternity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597836-9781452538808-nothing-matters/"><u>Nothing Matters | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138600789-9781789040845-the-celtic-goddess/"><u>The Celtic Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138600724-9781449498696-the-little-book-of-pocket-spells/"><u>The Little Book of Pocket Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597855-9781452549545-the-metaphysics-of-shoes/"><u>The Metaphysics of Shoes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138597680-9781452559650-the-reward-of-not-knowing/"><u>The Reward of Not Knowing | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

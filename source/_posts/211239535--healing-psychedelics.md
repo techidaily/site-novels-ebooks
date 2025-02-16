@@ -1,7 +1,7 @@
 ---
 title: Healing Psychedelics | Free Book
-date: 2024-10-20T22:41:59.034Z
-updated: 2024-10-27T05:34:02.222Z
+date: 2025-02-15T02:18:52.444Z
+updated: 2025-02-16T00:58:36.101Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/34f08baea6e95446fcea5b78a5c87e304f0fd6a2f42c9819c191d017804b2cd8.jpg
@@ -157,3 +157,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/34f08baea6e95446fcea5b78a5c87e3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209870563-9780578457482-coming-home-to-divine-presence/"><u>Coming Home to Divine Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209869791-9780578458731-hidden/"><u>Hidden | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209870630-9780578475011-maha-reiki-master-teaching-manual/"><u>Maha Reiki Master Teaching Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209870738-9780648391326-snow-gums-gift/"><u>Snow Gum's Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209870417-9781732849518-the-invisible-anatomy/"><u>The Invisible Anatomy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209870691-9781908421340-the-mediumship-of-jack-webber/"><u>The Mediumship of Jack Webber | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209870558-9789388760515-the-science-of-being-great/"><u>The Science of Being Great | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209870561-9789388760522-the-science-of-being-well/"><u>The Science of Being Well | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

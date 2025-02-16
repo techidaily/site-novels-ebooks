@@ -1,7 +1,7 @@
 ---
 title: The Book of Ceremonial Magic | Free Book
-date: 2025-01-29T18:07:27.213Z
-updated: 2025-02-03T18:48:19.421Z
+date: 2025-02-11T16:27:12.935Z
+updated: 2025-02-16T01:14:25.253Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82ca7330ecac4a7af071d61120c2541a407.jpg
@@ -161,16 +161,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/33406c4667186fef712368b7e5eeb82
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125983-9781609257705-quantum-affirmations/"><u>Quantum Affirmations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125994-9781609252847-reclaim-the-power-of-the-witch/"><u>Reclaim the Power of the Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125997-9781609254087-relating/"><u>Relating | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126001-9781609253974-retrograde-planets/"><u>Retrograde Planets | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1126002-9781609256449-return-again/"><u>Return Again | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125976-9781609254650-the-psychic-self-defense-personal-training-manual/"><u>The Psychic Self-Defense Personal Training Manual | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125982-9781609257903-the-qabalah/"><u>The Qabalah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210305595-9781098081331-a-walking-miracle/"><u>A Walking Miracle | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210305879-9781907767609-astrology-as-art/"><u>Astrology as Art | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210305877-9781774341056-extreme-weight-loss-hypnosis/"><u>Extreme Weight Loss Hypnosis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210305925-9781736898802-follow-your-design/"><u>Follow Your Design | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210305934-9781801348744-guided-meditations-breathwork-for-anxiety-deep-sleep/"><u>Guided Meditations & Breathwork For Anxiety & Deep Sleep | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210306569-9781493045914-haunted-us-battlefields-2nd-ed/"><u>Haunted U.S. Battlefields (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210306547-9780750994415-the-south-shields-poltergeist/"><u>The South Shields Poltergeist | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

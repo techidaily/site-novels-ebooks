@@ -1,7 +1,7 @@
 ---
 title: What All the World’s A-Seeking | Free Book
-date: 2025-02-01T16:35:00.800Z
-updated: 2025-02-03T17:45:06.329Z
+date: 2025-02-09T18:06:28.141Z
+updated: 2025-02-15T22:16:48.929Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2eea79291f91bfc9047c5e36d3a555bfdcc6a7f54df9f81071349024c853465d.jpg
@@ -138,15 +138,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2eea79291f91bfc9047c5e36d3a555b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95846967-9781507205303-find-your-goddess/"><u>Find Your Goddess | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95845201-9781439658239-haunted-bachelors-grove/"><u>Haunted Bachelors Grove | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95847344-9781507205792-my-pocket-mantras/"><u>My Pocket Mantras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842751-9781881098447-the-witches-almanac-issue-37-spring-2018-to-2019/"><u>The Witches' Almanac: Issue 37, Spring 2018 to 2019 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95851267-9781633410657-understanding-aleister-crowleys-thoth-tarot/"><u>Understanding Aleister Crowley's Thoth Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95847018-9781501176906-unmedicated/"><u>Unmedicated | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210018002-9781787134539-crystallize/"><u>Crystallize | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210023636-9780753734452-everyday-confidence/"><u>Everyday Confidence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210023638-9780753734469-everyday-tidiness/"><u>Everyday Tidiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210020188-9781789047066-let-the-numbers-guide-you/"><u>Let the Numbers Guide You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210022128-9781578597246-monsters-of-the-deep/"><u>Monsters of the Deep | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210023092-9781734758023-the-nature-of-god-the-revelation/"><u>The Nature of God: The Revelation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210020280-9781473587748-what-are-you-looking-for/"><u>What Are You Looking For? | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

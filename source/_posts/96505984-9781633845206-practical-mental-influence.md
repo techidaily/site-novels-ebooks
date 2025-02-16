@@ -1,7 +1,7 @@
 ---
 title: Practical Mental Influence | Free Book
-date: 2025-01-31T17:42:21.422Z
-updated: 2025-02-03T17:22:13.444Z
+date: 2025-02-11T17:53:50.255Z
+updated: 2025-02-16T00:51:48.496Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22f73d9cc1a7a4ce413cec4804884d1b519.jpg
@@ -143,15 +143,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a7dfaa73a558736860cc2468c812d22
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95827921-9781547508471-assim-acima-como-abaixo-a-minha-vida-como-um-adepto-uma-autobiografia-por-seila-orienta/"><u>Assim Acima, Como Abaixo. A Minha Vida Como Um Adepto. Uma Autobiografia por Seila Orienta | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95828505-9781608684946-big-love/"><u>Big Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95828523-9781681652924-el-despertar-de-la-conciencia/"><u>El despertar de la conciencia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95828176-9781547507542-el-primer-arcano-menor/"><u>El Primer Arcano Menor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95824000-9780892546671-geomancy/"><u>Geomancy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95825155-9780007484096-the-dream-dictionary-from-a-to-z-revised-edition/"><u>The Dream Dictionary from A to Z [Revised edition] | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210008836-9781722524524-at-your-command/"><u>At Your Command | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210007302-9781646541942-beyond-the-fighter/"><u>Beyond The Fighter | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210008585-9781000063080-current-controversies-in-philosophy-of-cognitive-science/"><u>Current Controversies in Philosophy of Cognitive Science | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210006766-9781472267719-prajna/"><u>Prajna | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210007456-9781940447452-rethinking-consciousness/"><u>Rethinking Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210006724-9781783254132-sacred-places/"><u>Sacred Places | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210006755-9781398701168-self-care-for-self-isolation/"><u>Self-Care for Self-Isolation | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

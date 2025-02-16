@@ -1,7 +1,7 @@
 ---
 title: Born With a Question Mark in Your Heart | Free Book
-date: 2025-01-27T17:36:13.732Z
-updated: 2025-02-03T18:26:08.158Z
+date: 2025-02-12T01:38:29.246Z
+updated: 2025-02-15T20:56:49.761Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f885342066bdc3b498e7939ef186e37a9e69.jpg
@@ -171,16 +171,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f88
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96489607-9781578594009-real-nightmares-book-1/"><u>Real Nightmares (Book 1) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96489602-9781578594047-real-nightmares-book-2/"><u>Real Nightmares (Book 2) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96489603-9781578594078-real-nightmares-book-3/"><u>Real Nightmares (Book 3) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96489605-9781578594351-real-nightmares-book-7/"><u>Real Nightmares (Book 7) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96489606-9781578594344-real-nightmares-book-7/"><u>Real Nightmares (Book 7) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96489601-9781578594375-real-nightmares-book-8/"><u>Real Nightmares (Book 8) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96489604-9781578593484-the-vampire-book/"><u>The Vampire Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232463-9781644113172-angels-in-waiting/"><u>Angels in Waiting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232469-9781644113974-our-african-unconscious-3rd-ed/"><u>Our African Unconscious (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232466-9781644113394-psychedelic-cannabis-2nd-ed/"><u>Psychedelic Cannabis (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232471-9781644113332-psychedelics-and-psychotherapy/"><u>Psychedelics and Psychotherapy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232460-9781644111710-tales-of-witchcraft-and-wonder/"><u>Tales of Witchcraft and Wonder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232456-9781644112687-the-path-of-the-warrior-mystic/"><u>The Path of the Warrior-Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232461-9781644113356-the-poison-path-herbal/"><u>The Poison Path Herbal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232462-9781644113233-the-tree-horoscope/"><u>The Tree Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232467-9781644114179-three-books-of-occult-philosophy/"><u>Three Books of Occult Philosophy | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

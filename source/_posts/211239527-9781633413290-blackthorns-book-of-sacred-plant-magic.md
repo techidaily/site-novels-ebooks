@@ -1,7 +1,7 @@
 ---
 title: Blackthorn's Book of Sacred Plant Magic | Free Book
-date: 2024-10-22T23:42:50.973Z
-updated: 2024-10-26T16:00:12.989Z
+date: 2025-02-11T19:23:31.838Z
+updated: 2025-02-15T19:39:48.229Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2581ba69a896fd54444cd80b78b978567c2626ab2db0cf989c4f6349cfea5436.jpg
@@ -175,3 +175,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2581ba69a896fd54444cd80b78b9785
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209866112-9780692890592-cultivating-minds-to-own-thyself/"><u>Cultivating Minds To Own Thyself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209866100-9780988499034-deep-energy/"><u>Deep Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209866079-9781944878931-spiritual-verse-today/"><u>Spiritual Verse Today | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209866107-9780648119401-the-grand-illusion/"><u>The Grand Illusion | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

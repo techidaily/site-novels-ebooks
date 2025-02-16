@@ -1,7 +1,7 @@
 ---
 title: The History of Witchcraft and Demonology | Free Book
-date: 2025-02-01T18:25:29.775Z
-updated: 2025-02-03T17:41:06.834Z
+date: 2025-02-11T16:16:36.427Z
+updated: 2025-02-15T18:52:48.799Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f520c44b641ee6cac599be4df3650d4de7c4.jpg
@@ -166,17 +166,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7d6e80816a588319bfa09ba9f0c6f52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1125678-9781609251499-dreaming-of-the-council-ways/"><u>Dreaming of the Council Ways | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125681-9781609253868-dynamics-of-the-unconscious/"><u>Dynamics of the Unconscious | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125702-9781609254711-everyday-tarot/"><u>Everyday Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125679-9781609251512-the-druid-magic-handbook/"><u>The Druid Magic Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125700-9781609256432-the-everyday-psychic/"><u>The Everyday Psychic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125711-9781609254452-the-fifth-dimension/"><u>The Fifth Dimension | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125737-9781609250140-the-god-theory/"><u>The God Theory | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1125744-9781609254216-the-great-secret-or-occultism-unveiled/"><u>The Great Secret or Occultism Unveiled | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210296076-9781641914260-a-cliff-note/"><u>A Cliff Note | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210296451-9781644586709-battle-cry/"><u>Battle Cry | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210296454-9781640795723-dreams-of-hidden-forest/"><u>Dreams of Hidden Forest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210296419-9781635750836-oh-secret-silence-a-collection-of-my-poems-and-a-few-good-short-stories/"><u>Oh Secret Silence: A Collection of my Poems and a Few Good Short Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210296303-9781641911733-walks-with-buddy/"><u>Walks With Buddy | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

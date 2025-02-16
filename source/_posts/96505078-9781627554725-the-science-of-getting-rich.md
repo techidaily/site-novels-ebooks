@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2025-02-02T16:53:38.852Z
-updated: 2025-02-03T18:41:31.324Z
+date: 2025-02-09T17:57:31.132Z
+updated: 2025-02-15T17:53:48.018Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43bb165fe17db857a49eb24126f2f77ed5c.jpg
@@ -137,16 +137,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95937546-9781844097609-being-present/"><u>Being Present | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95937227-9781946764249-biography-of-silence/"><u>Biography of Silence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95937128-9780525509660-enchantments/"><u>Enchantments | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935442-9781844097678-omni-reveals-the-four-principles-of-creation/"><u>Omni Reveals the Four Principles of Creation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95937550-9781844097555-the-power-of-the-infinity-symbol/"><u>The Power of the Infinity Symbol | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935443-9781844098804-the-power-of-your-angels/"><u>The Power of Your Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95935441-9781844097760-weave-the-heart-of-the-universe-into-your-life/"><u>Weave the Heart of the Universe into Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094609-9781838109219-a-journal-to-you/"><u>A Journal To You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094783-9780648921509-celebrate-your-gold-within/"><u>CELEBRATE YOUR GOLD WITHIN | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094197-9781401959746-chica-why-not/"><u>Chica, Why Not? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094270-9780593232026-karma/"><u>Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094572-9781735349213-radical-enlightenment-my-guy-on-the-9th-floor/"><u>Radical Enlightenment: My Guy On The 9th Floor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094708-9781646670208-struggle-trauma-nor-bad-choices-stopped-me/"><u>Struggle Trauma Nor Bad Choices Stopped Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094009-9781789044997-walks-with-sam/"><u>Walks With Sam | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210094004-9781789043037-wisdom-from-the-spirit-world/"><u>Wisdom From the Spirit World | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

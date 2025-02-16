@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2025-01-30T17:54:24.513Z
-updated: 2025-02-03T17:16:24.500Z
+date: 2025-02-08T22:10:03.843Z
+updated: 2025-02-16T00:10:32.992Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26eab69f6fe8f2130feac86e57b30253de7b.jpg
@@ -156,13 +156,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4e07a825568cb6c18ccdd2ef813d26e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/992924-9781776523368-byways-of-ghost-land/"><u>Byways of Ghost-Land | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/992888-9781776523955-the-forerunner/"><u>The Forerunner | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/992931-9781776524174-the-gulistan-of-sadi/"><u>The Gulistan of Sa'di | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/992871-9781776523481-the-vital-message/"><u>The Vital Message | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210262871-9781952491108-awaken-to-unconditional-love/"><u>Awaken to Unconditional Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260160-9788194752073-be-the-smarter-you-your-app-store-for-success-happiness/"><u>Be the Smarter You: Your App Store for Success & Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260817-9781801349901-energy-healing-for-beginners/"><u>Energy Healing for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210259998-9781524871673-for-all-you-do/"><u>For All You Do | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210261012-9781528767668-is-spiritualism-based-on-fraud-the-evidence-given-by-sir-a-c-doyle-and-others-drastically-examined/"><u>Is Spiritualism Based on Fraud? - The Evidence Given by Sir A. C. Doyle and Others Drastically Examined | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260777-9781951130657-messages-from-sam/"><u>Messages from Sam | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260815-9781801346993-practical-numerology-amp-astrology-for-beginners/"><u>Practical Numerology &amp; Astrology For Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260806-9781801349550-third-eye-awakening-kundalini-for-beginnersamp-energy-healing-4-in-1/"><u>Third Eye Awakening, Kundalini For Beginners&amp; Energy Healing (4 in 1) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210260816-9781801349574-third-eye-kundalini-amp-sexuality-awakening-for-beginners/"><u>Third Eye, Kundalini &amp; Sexuality Awakening for Beginners | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

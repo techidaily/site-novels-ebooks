@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Genevieve Behrend | Free Book
-date: 2025-01-29T16:55:13.925Z
-updated: 2025-02-03T18:07:43.886Z
+date: 2025-02-14T19:44:24.804Z
+updated: 2025-02-15T19:30:21.037Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd628496433dbd5b0583786f4260b161219a84cf98.jpg
@@ -158,14 +158,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd6284964
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/95841433-9781683253822-el-aura-energia-vital-luminosa/"><u>El Aura. Energía vital luminosa | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95841425-9781683253747-el-extraordinario-mundo-de-los-fantasmas/"><u>El extraordinario mundo de los fantasmas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95841435-9781683253846-el-tarot-egipcio/"><u>El tarot egipcio | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95841434-9781683253839-feng-shui-y-el-poder-de-la-piramide/"><u>Feng Shui y El Poder de La Piramide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95841427-9781683253761-los-test-psicologicos-de-aptitud-y-personalidad/"><u>Los test psicologicos de aptitud y personalidad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210011865-9781071540930-escrever-para-ser-feliz/"><u>Escrever para ser feliz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210011975-9781071537084-leadership-gagner-le-respect-et-faire-avancer-les-choses/"><u>Leadership: Gagner Le Respect Et Faire Avancer Les Choses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210011915-9781071540763-meditacao-para-iniciantes/"><u>Meditação para Iniciantes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210011990-9781071515563-meditazione-pochi-passi-per-il-successo-nella-tua-vita/"><u>Meditazione: Pochi Passi Per Il Successo Nella Tua Vita | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210011890-9781071541449-megans-vader-wordt-ziek/"><u>Megan's Vader Wordt Ziek | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210011908-9781071539521-h-megkan-paei-ippasia/"><u>Η Μέγκαν πάει ιππασία | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Healing Journeys with the Black Madonna | Free Book
-date: 2025-02-02T17:18:20.973Z
-updated: 2025-02-03T16:32:22.783Z
+date: 2025-02-08T20:54:33.456Z
+updated: 2025-02-15T23:17:07.060Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e6d8fe33a6b304964f08812c77d40c1e34.jpg
@@ -212,14 +212,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e43fb7d15f38b942ce751a36005e39e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/1153682-9781577317005-365-prescriptions-for-the-soul/"><u>365 Prescriptions for the Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1153688-9781577319658-active-dreaming/"><u>Active Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1153690-9781577317074-all-my-relations/"><u>All My Relations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1152505-9781476728643-the-spiritual-science-of-emma-curtis-hopkins/"><u>The Spiritual Science of Emma Curtis Hopkins | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1152610-9781476744728-tipping-sacred-cows/"><u>Tipping Sacred Cows | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339952-9781722526917-daydream-believer/"><u>Daydream Believer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339913-9789811817991-i-am-youand-you-are-me/"><u>I AM YOU...AND YOU ARE ME | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339962-9781722526085-living-free/"><u>Living Free | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339910-9781737582236-poems-for-my-people-iii/"><u>Poems for My People III | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339934-9789529451616-the-holy-book-of-luck/"><u>The Holy Book of Luck | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339953-9781722526955-the-miracle-month-second-edition/"><u>The Miracle Month - Second Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339972-9781662490736-viviendo-con-depresion/"><u>Viviendo con Depresión | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339959-9781722526924-your-unlimited-self/"><u>Your Unlimited Self | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

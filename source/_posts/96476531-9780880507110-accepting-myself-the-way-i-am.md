@@ -1,7 +1,7 @@
 ---
 title: Accepting Myself the Way I Am | Free Book
-date: 2025-01-27T17:47:23.803Z
-updated: 2025-02-03T18:44:50.000Z
+date: 2025-02-14T02:52:02.476Z
+updated: 2025-02-15T17:13:39.967Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f72483f99e6e153e78f83fa84c7b15b811.jpg
@@ -163,15 +163,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/96370937-9780876047521-2038-the-great-pyramid-timeline-prophecy/"><u>2038 The Great Pyramid Timeline Prophecy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370932-9780876046913-edgar-cayces-origin-and-destiny-of-man/"><u>Edgar Cayce's Origin and Destiny of Man | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370940-9780876047187-the-calling/"><u>The Calling | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370931-9780876046715-the-power-of-your-mind/"><u>The Power of Your Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370933-9780876046753-visits-from-heaven/"><u>Visits From Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96370938-9780876046357-visits-to-heaven/"><u>Visits to Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197286-9781631595189-crystal-lore-legends-myths/"><u>Crystal Lore, Legends & Myths | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197201-9780760361153-in-focus-astrology/"><u>In Focus Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197402-9780760369661-tales-of-the-night-sky/"><u>Tales of the Night Sky | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197441-9781631596971-the-book-of-blessings-and-rituals/"><u>The Book of Blessings and Rituals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197227-9781577151548-the-complete-book-of-birthdays/"><u>The Complete Book of Birthdays | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210197243-9781781319499-the-moon-fix/"><u>The Moon Fix | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

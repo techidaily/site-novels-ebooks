@@ -1,7 +1,7 @@
 ---
 title: The Cognative Fitness Workbook | Free Book
-date: 2024-10-24T02:16:30.349Z
-updated: 2024-10-27T01:03:19.609Z
+date: 2025-02-11T16:14:01.501Z
+updated: 2025-02-15T20:19:52.786Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/78b292fcf56d5f8eb569c07005077a41761c60ce71895822c999136021cffec4.jpg
@@ -154,3 +154,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/78b292fcf56d5f8eb569c07005077a4
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209615494-9781788173506-angel-numbers/"><u>Angel Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209616450-9781507211311-crystals-for-mom/"><u>Crystals for Mom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209613092-9781608685967-energy-speaks/"><u>Energy Speaks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209616476-9781616498047-find-your-light/"><u>Find Your Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209616522-9781507211069-your-goddess-year/"><u>Your Goddess Year | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

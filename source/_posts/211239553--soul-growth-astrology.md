@@ -1,7 +1,7 @@
 ---
 title: Soul Growth Astrology | Free Book
-date: 2024-10-23T22:23:54.791Z
-updated: 2024-10-27T04:09:03.666Z
+date: 2025-02-12T01:53:17.273Z
+updated: 2025-02-16T02:52:30.850Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5f0cf8f3863744e7724196814ce9de668f6d43f417178897f7ca2f197c0be770.jpg
@@ -148,3 +148,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5f0cf8f3863744e7724196814ce9de6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209841400-9780996278034-ama-deus/"><u>Ama-Deus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841620-9781943385010-anythings-possible/"><u>Anything's Possible | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841462-9781939438386-mind-control-in-the-united-states/"><u>Mind Control In The United States | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841521-9781942969990-seeds-for-life/"><u>Seeds for Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841460-9780692538128-the-emerald-doorway/"><u>THE EMERALD DOORWAY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841476-9780986297816-zakisms/"><u>Zakisms | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

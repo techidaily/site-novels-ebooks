@@ -1,7 +1,7 @@
 ---
 title: Mastering Your Mindset, The Journal to Self-Discovery | Free Book
-date: 2024-10-24T00:55:16.253Z
-updated: 2024-10-26T22:20:00.712Z
+date: 2025-02-11T02:01:35.619Z
+updated: 2025-02-15T18:12:29.841Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/19690095a4ad784e8a3af89fafd49a1683d78dd1e4fff0956ed088d1adb67f8b.jpg
@@ -136,3 +136,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/19690095a4ad784e8a3af89fafd49a1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/209676648-9781620557976-aleister-crowley-in-india/"><u>Aleister Crowley in India | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209676650-9781591433613-awakening-the-ancient-power-of-snake/"><u>Awakening the Ancient Power of Snake | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209675958--mystical-molecules/"><u>Mystical Molecules | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209676645-9781620557877-rishi-yoga/"><u>Rishi Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209676649-9781591433552-the-heart-of-the-great-mother-2nd-ed/"><u>The Heart of the Great Mother (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209676431-9781783253463-the-little-book-of-self-care/"><u>The Little Book of Self-care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209676275-9780880506137-the-search-for-peace/"><u>The Search for Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209676647-9781620559338-the-three-stages-of-initiatic-spirituality/"><u>The Three Stages of Initiatic Spirituality | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+

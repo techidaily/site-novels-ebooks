@@ -1,7 +1,7 @@
 ---
 title: Mysteries of the Supernatural | Free Book
-date: 2025-01-31T18:31:13.305Z
-updated: 2025-02-03T16:09:36.647Z
+date: 2025-02-09T23:54:36.558Z
+updated: 2025-02-15T19:36:14.918Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d7f7ff878be62b0e121a69cb1d3e566938aa6bc3f19a4f2c2da321ce85b9b240.jpg
@@ -142,16 +142,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d7f7ff878be62b0e121a69cb1d3e566
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138547178-9780987866233-a-quest-for-healing-a-story-of-love-ebook/"><u>A Quest for Healing – A Story of Love - EBOOK | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138552564-9781578596928-area-51/"><u>Area 51 | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545043-9781623173500-consciousness-medicine/"><u>Consciousness Medicine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545085-9780399582561-dont-hate-meditate/"><u>Don't Hate, Meditate! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545037-9781401929886-four-acts-of-personal-power/"><u>Four Acts of Personal Power | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138545033-9781401920517-the-art-of-redemption/"><u>The Art of Redemption | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138547224-9789176371138-the-prophet-wisehouse-classics-edition/"><u>THE PROPHET (Wisehouse Classics Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210358785-9780753735060-crystal-zodiac/"><u>Crystal Zodiac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210359240-9781947151963-finding-your-path-engaging-your-purpose/"><u>Finding Your Path, Engaging Your Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210358342-9782226468062-les-cles-de-lesoterisme-geometrie-sacree/"><u>Les Clés de l'ésotérisme - Géométrie sacrée | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210358341-9782226468055-les-cles-de-lesoterisme-les-lignes-de-la-main/"><u>Les Clés de l'ésotérisme - Les Lignes de la main | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210359219-9780578954189-old-crow/"><u>Old Crow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210358319-9782017150046-oser-sa-lumiere/"><u>Oser sa lumière | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210358214-9780691238227-paracelsus/"><u>Paracelsus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210359274-9781990093197-the-quest-of-rose/"><u>The Quest of Rose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210359043-9780995699960-working-with-the-planets/"><u>Working with the Planets | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
