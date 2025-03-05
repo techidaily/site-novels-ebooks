@@ -1,7 +1,7 @@
 ---
 title: The Healing Power of Your Subconscious Mind | Free Book
-date: 2024-10-20T22:41:15.515Z
-updated: 2024-10-26T17:29:59.925Z
+date: 2025-02-25T17:53:03.354Z
+updated: 2025-03-04T17:46:18.660Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ad4cc52d61f62352fa26482a74515561b3495c1461b0245c31f7a7f65dcf0a69.jpg
@@ -145,3 +145,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ad4cc52d61f62352fa26482a7451556
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210655626-9781454944348-a-little-bit-of-feng-shui/"><u>A Little Bit of Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655743-9781785359583-an-exploration-of-trance-mediumship/"><u>An Exploration of Trance Mediumship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655622-9781454943891-psychic-spellcraft/"><u>Psychic Spellcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655628-9781454944515-vibes-from-the-other-side/"><u>Vibes from the Other Side | Free Book</u></a></li>
+</ul></div>
+

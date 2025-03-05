@@ -1,7 +1,7 @@
 ---
 title: Le grand livre de l'astrologie | Free Book
-date: 2024-10-20T04:32:51.609Z
-updated: 2024-10-26T21:43:11.951Z
+date: 2025-02-28T23:55:36.996Z
+updated: 2025-03-04T20:19:58.470Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73943ad52bcc3d3367aecd7b0de1d7b1225d5a7ca9980c8b0d61680ed8a1d821.jpg
@@ -151,3 +151,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73943ad52bcc3d3367aecd7b0de1d7b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210689336-9781684985630-32-healing-meditations-for-a-wounded-world/"><u>32 HEALING MEDITATIONS FOR A WOUNDED WORLD | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210689364-9781662480904-god-is-light/"><u>God is Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210689755-9781398446946-how-to-escape-from-hell/"><u>How to Escape from Hell | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210689404-9781662485862-in-pursuit-of-happiness/"><u>In Pursuit of Happiness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690265-9781953839930-lifelike/"><u>Lifelike | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210689301-9781952692543-the-mindfulness-bell-91-mindfulness-public-health-2023/"><u>The Mindfulness Bell 91: Mindfulness & Public Health, 2023 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210689299-9781952692505-the-mindfulness-bell-no-birth-no-death-only-continuation-issue-90-2022/"><u>The Mindfulness Bell: No Birth, No Death, Only Continuation, Issue 90, 2022 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210690330-9780760378069-the-witchs-complete-guide-to-tarot/"><u>The Witch's Complete Guide to Tarot | Free Book</u></a></li>
+</ul></div>
+

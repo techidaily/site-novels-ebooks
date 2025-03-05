@@ -1,7 +1,7 @@
 ---
 title: Real Aliens, Space Beings, and Creatures from Other Worlds | Free Book
-date: 2025-02-14T00:34:12.292Z
-updated: 2025-02-16T01:14:43.768Z
+date: 2025-02-26T17:37:33.164Z
+updated: 2025-03-04T18:54:42.622Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e25748c366cb198a9e490d0ce8e049c4ef.jpg
@@ -262,15 +262,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b053de09ff3d0f658c98cab503041e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210124451-9781647464646-fearlessly-chosen/"><u>Fearlessly Chosen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210124474-9782175402513-mindfulness-meditation-guide/"><u>Mindfulness Meditation Guide | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210124723-9781733160131-recollections-of-a-future-ghost/"><u>Recollections of a Future Ghost | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210124296-9781783254347-the-numinous-cosmic-year/"><u>The Numinous Cosmic Year | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210124466-9788792633620-the-power-of-the-trumps-and-pips/"><u>The power of the trumps and pips | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210124340-9781529341430-the-truth-about-angels/"><u>The Truth about Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932944-9781912230938-child-of-the-cosmos/"><u>Child of the Cosmos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932942-9781912230600-demons-and-healing/"><u>Demons and Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932953-9781855844445-good-and-evil-spirits/"><u>Good and Evil Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932947-9781855842946-knowledge-of-the-higher-worlds/"><u>Knowledge of the Higher Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932949-9781912992034-love-love-love/"><u>Love, Love, Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932938-9781912992133-nature-spirits-and-what-they-say/"><u>Nature Spirits and What They Say | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932939-9781855842809-strengthening-the-will/"><u>Strengthening the Will | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932946-9781912230945-the-three-meetings/"><u>The Three Meetings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932941-9781855844308-transforming-the-soul-volume-1/"><u>Transforming The Soul: Volume 1 | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

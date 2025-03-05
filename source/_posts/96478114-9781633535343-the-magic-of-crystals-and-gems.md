@@ -1,7 +1,7 @@
 ---
 title: The Magic of Crystals and Gems | Free Book
-date: 2025-02-14T23:04:01.375Z
-updated: 2025-02-16T01:55:03.457Z
+date: 2025-02-27T20:28:08.355Z
+updated: 2025-03-05T01:55:44.297Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b38fff263087f40773acdeafb58a28caf35.jpg
@@ -181,16 +181,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ee4767774ed254f9fe56c10f66a05b3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210197741-9781782408109-art-of-mindful-reading/"><u>Art of Mindful Reading | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197891-9781631599750-crystal-grids-handbook/"><u>Crystal Grids Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197603-9780760365809-eff-this-meditation/"><u>Eff This! Meditation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197696-9780760363652-in-focus-tarot/"><u>In Focus Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197803-9780760368220-knot-magic/"><u>Knot Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197569-9781782407133-secrets-of-numerology/"><u>Secrets of Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197589-9780711252844-the-mindful-universe/"><u>The Mindful Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211031017-9781961827011-case-files-of-the-rocky-mountain-paranormal-research-society-volume-1/"><u>Case Files of the Rocky Mountain Paranormal Research Society Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211030940-9780997282573-the-essence-of-sound/"><u>The Essence of Sound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211031080-9798989009763-the-pillars-of-gynarchy/"><u>The Pillars of Gynarchy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211030911-9780997282511-the-way-of-the-simple-soul/"><u>The Way of the Simple Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211031031-9798987004920-to-boob-or-not-to-boob/"><u>TO BOOB, OR NOT TO BOOB | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211030963-9781088251874-trust-the-signs/"><u>Trust the Signs | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

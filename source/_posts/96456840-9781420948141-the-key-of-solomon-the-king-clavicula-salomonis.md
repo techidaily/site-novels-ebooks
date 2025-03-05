@@ -1,7 +1,7 @@
 ---
 title: "The Key of Solomon the King: Clavicula Salomonis | Free Book"
-date: 2025-02-11T19:41:39.755Z
-updated: 2025-02-15T20:01:21.518Z
+date: 2025-02-27T00:57:42.252Z
+updated: 2025-03-04T19:42:42.414Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e8f90c50108afc682abdd02448146206d2.jpg
@@ -145,17 +145,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5b48dc8cb04657604f7a0bd04e045e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210266263-9781644114513-how-to-become-a-mermaid/"><u>How to Become a Mermaid | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210266261-9781644114070-machine-intelligence-and-the-imaginal-realm/"><u>Machine Intelligence and the Imaginal Realm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210266260-9781644113769-making-the-ordinary-extraordinary/"><u>Making the Ordinary Extraordinary | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210267033-9780956317933-relearning-experience-to-resolve-emotional-problems/"><u>Relearning Experience to Resolve Emotional Problems | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210266258-9781644113691-tantric-psychophysics-2nd-ed/"><u>Tantric Psychophysics (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210266264-9781644113783-the-bavarian-illuminati/"><u>The Bavarian Illuminati | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210266257-9781644113158-the-chintamani-crystal-matrix/"><u>The Chintamani Crystal Matrix | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210266262-9781644114117-wetiko/"><u>Wetiko | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150221-9780008667535-aries-2025-your-personal-horoscope/"><u>Aries 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211149717-9780645870213-by-divine-instruction-lessons-in-metaphysical-healing/"><u>By Divine Instruction - Lessons in Metaphysical Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150223-9780008667559-gemini-2025-your-personal-horoscope/"><u>Gemini 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211149978-9781739579708-seer-i/"><u>SEER I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150222-9780008667542-taurus-2025-your-personal-horoscope/"><u>Taurus 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211149667-9780760391341-the-aura-chakra-healing-companion/"><u>The Aura & Chakra Healing Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150220-9780008667528-your-personal-horoscope-2025/"><u>Your Personal Horoscope 2025 | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

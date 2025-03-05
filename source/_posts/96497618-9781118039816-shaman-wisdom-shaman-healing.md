@@ -1,7 +1,7 @@
 ---
 title: Shaman Wisdom, Shaman Healing | Free Book
-date: 2025-02-12T00:54:29.899Z
-updated: 2025-02-15T20:31:47.558Z
+date: 2025-02-28T20:15:01.494Z
+updated: 2025-03-04T16:37:19.771Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227dd6a78d4ebdf79aadf730589cda3837024.jpg
@@ -182,18 +182,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/376d6eb719bc0405eafbc52f54f227d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210133191-9781644112816-alchemical-tantric-astrology/"><u>Alchemical Tantric Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133189-9781644112748-crystals-and-numerology/"><u>Crystals and Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210134115-9781528764797-demonology-and-witchcraft-in-the-british-isles-and-ireland/"><u>Demonology and Witchcraft in the British Isles and Ireland | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133190-9781644112939-forgotten-civilization-2nd-ed/"><u>Forgotten Civilization (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210134147-9781636849904-neglected-love/"><u>Neglected Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133269-9781786785275-success-is-not-a-fluke/"><u>Success is Not a Fluke | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133663-9781953791061-the-deep-touch/"><u>The deep touch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133345-9780593196786-the-enneagram-for-beginners/"><u>The Enneagram for Beginners | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133694-9781953791207-wellness/"><u>WELLNESS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210936305-9780717157594-in-the-company-of-angels/"><u>In the Company of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210935292-9781667459349-mudanca-de-paradigma/"><u>Mudança de Paradigma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210936149-9780717158171-the-courage-to-love-surviving-and-thriving-in-your-relationship/"><u>The Courage to Love: Surviving and Thriving in Your Relationship | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210935594-9781848312289-the-psychic-tourist/"><u>The Psychic Tourist | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

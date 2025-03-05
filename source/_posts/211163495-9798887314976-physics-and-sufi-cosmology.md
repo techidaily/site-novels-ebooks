@@ -1,7 +1,7 @@
 ---
 title: PHYSICS AND SUFI COSMOLOGY | Free Book
-date: 2024-10-24T17:02:54.560Z
-updated: 2024-10-26T17:54:56.367Z
+date: 2025-02-27T22:20:46.511Z
+updated: 2025-03-05T00:55:46.456Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f20ca7b10346391a51631dd321b4b29a933.jpg
@@ -172,3 +172,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f2
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210663889-9781667435237-por-que-es-importante-ser-feliz/"><u>¿Por qué es importante ser feliz? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210663870-9781667436722-de-vergeten-kunst-van-het-geluk/"><u>De Vergeten Kunst van het Geluk | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210663946-9781667438887-die-vergessene-kunst-des-glucklichseins/"><u>Die Vergessene Kunst des Glücklichseins | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210663844-9781667437767-la-visite-des-grands-parents-de-megan/"><u>La visite des grands-parents de Megan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210663898-9781667435220-por-que-ser-feliz-e-importante/"><u>Por que Ser Feliz é Importante | Free Book</u></a></li>
+</ul></div>
+

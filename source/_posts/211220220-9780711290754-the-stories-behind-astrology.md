@@ -1,7 +1,7 @@
 ---
 title: The Stories Behind Astrology | Free Book
-date: 2024-10-20T03:17:04.602Z
-updated: 2024-10-26T19:26:04.469Z
+date: 2025-02-28T23:08:06.910Z
+updated: 2025-03-05T00:51:53.107Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6d04d08f37eec0a1e457bf2b86563932d723d743b8f42f8ba650c696652b294b.jpg
@@ -208,3 +208,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6d04d08f37eec0a1e457bf2b8656393
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210428922-9781683488057-babaji/"><u>BABAJI | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428228-9780645206432-believing-in-me/"><u>believing in ME | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428200-9781956216042-born-giving-birth-to-a-new-you/"><u>Born Giving Birth to a New You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428916-9781662447952-quotes-the-famous-and-not-so-famous/"><u>Quotes: The Famous and Not so Famous | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210428766-9780762474288-the-night-school/"><u>The Night School | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210427372-9781913768256-the-roman-calendar/"><u>The Roman Calendar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210427203-9781088016381-two-near-death-experiences/"><u>Two Near-Death Experiences | Free Book</u></a></li>
+</ul></div>
+

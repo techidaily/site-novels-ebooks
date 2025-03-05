@@ -1,7 +1,7 @@
 ---
 title: La caja de pandora | Free Book
-date: 2025-02-09T00:32:17.021Z
-updated: 2025-02-16T02:39:32.179Z
+date: 2025-02-28T16:35:13.069Z
+updated: 2025-03-04T20:31:16.641Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ec8db50091e3b81ea620cdb77e93143498e8986258009c90315cbf22a586286.jpg
@@ -147,16 +147,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ec8db50091e3b81ea620cdb77e9314
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209920626-9781071513996-365-citacoes-taoistas/"><u>365 Citações Taoistas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209920407-9781071518915-guida-alla-cura-e-alle-capacita-degli-empatici/"><u>Guida Alla Cura e Alle Capacità Degli Empatici | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209920425-9781071524299-megan-faz-trilha/"><u>Megan Faz Trilha | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209920466-9781071521793-mon-dernier-verre/"><u>Mon Dernier Verre | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209920219-9781071518236-success-the-only-possible-way/"><u>Success: The only possible way. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209920186-9781071519738-the-life-tailor-the-secret-to-making-your-dreams-come-true/"><u>The Life Tailor: The Secret to Making Your Dreams Come True | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209920227-9781071521953-h-pare3hghsh/"><u>Η Παρεξήγηση | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800693-9783988312037-crystals-healing-for-beginners/"><u>Crystals Healing for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800686-9781958082416-gods-gracious-glory/"><u>God's Gracious Glory | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800683-9781958434826-musings-of-a-mad-scientist/"><u>Musings of a Mad Scientist | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800396-9781959254010-present-moment-awareness-4th-ed/"><u>Present Moment Awareness (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210799828-9789356567801-the-power-of-concentration/"><u>The Power Of Concentration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800378-9781739347413-yantra-an-encyclopedia-volume-2/"><u>Yantra - An Encyclopedia - Volume 2 | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

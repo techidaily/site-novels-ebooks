@@ -1,7 +1,7 @@
 ---
 title: Accepting Myself the Way I Am | Free Book
-date: 2025-02-14T02:52:02.476Z
-updated: 2025-02-15T17:13:39.967Z
+date: 2025-03-01T18:56:47.614Z
+updated: 2025-03-04T22:54:35.052Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f72483f99e6e153e78f83fa84c7b15b811.jpg
@@ -163,15 +163,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/60525fee7bac1b7bf869ddc7626b41f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210197286-9781631595189-crystal-lore-legends-myths/"><u>Crystal Lore, Legends & Myths | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197201-9780760361153-in-focus-astrology/"><u>In Focus Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197402-9780760369661-tales-of-the-night-sky/"><u>Tales of the Night Sky | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197441-9781631596971-the-book-of-blessings-and-rituals/"><u>The Book of Blessings and Rituals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197227-9781577151548-the-complete-book-of-birthdays/"><u>The Complete Book of Birthdays | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197243-9781781319499-the-moon-fix/"><u>The Moon Fix | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211015900-9781958896174-awakening-of-a-warrior/"><u>Awakening of a Warrior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211017941-9798987021910-calmly-centered/"><u>Calmly Centered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211026079-9798886167740-count-time/"><u>Count Time | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211017429-9791028528423-le-theme-de-cristal-33-pierres-pour-optimiser-vos-potentiels/"><u>Le thème de cristal : 33 pierres pour optimiser vos potentiels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211018038-9781088235836-meditations-for-the-superhuman-mage/"><u>Meditations for the Superhuman Mage | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211019420-9781837820528-sensual/"><u>Sensual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211018012-9781734989892-symbol-synchronicity/"><u>Symbol & Synchronicity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211018220-9780997282559-the-way-of-the-lightkeeper/"><u>The Way of the Lightkeeper | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211017948-9798986780375-undertorah/"><u>Undertorah | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

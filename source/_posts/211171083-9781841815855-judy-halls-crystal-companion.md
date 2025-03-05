@@ -1,7 +1,7 @@
 ---
 title: Judy Hall's Crystal Companion | Free Book
-date: 2024-10-21T21:45:07.931Z
-updated: 2024-10-26T23:12:31.867Z
+date: 2025-03-04T01:29:58.507Z
+updated: 2025-03-05T00:10:23.325Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75afe1b7ce8c9217f595f80ef72b802d16c246655837739c334d6a2883aca51e.jpg
@@ -166,3 +166,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75afe1b7ce8c9217f595f80ef72b802
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210644795-9798986216652-26-strings/"><u>26 Strings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644799-9780997228175-mindful-practice-of-falun-gong-chinese-edition/"><u>法輪功的正念實踐 Mindful Practice of Falun Gong (Chinese Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644956-9781591434566-catching-the-ascension-wave/"><u>Catching the Ascension Wave | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644653-9781959018179-spirit-guides/"><u>Spirit Guides | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644825-9780349431758-tapping-in/"><u>Tapping In | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644955-9781591434405-the-ancient-tradition-of-angels/"><u>The Ancient Tradition of Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644954-9781591434467-the-first-female-pharaoh/"><u>The First Female Pharaoh | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644691-9781959018117-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644777-9781955985697-waking-up-to-feeling/"><u>Waking Up to Feeling | Free Book</u></a></li>
+</ul></div>
+

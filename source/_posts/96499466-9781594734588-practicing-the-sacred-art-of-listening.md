@@ -1,7 +1,7 @@
 ---
 title: Practicing the Sacred Art of Listening | Free Book
-date: 2025-02-13T02:52:27.602Z
-updated: 2025-02-15T21:49:13.361Z
+date: 2025-02-27T16:57:38.200Z
+updated: 2025-03-04T23:45:23.485Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4cfdc1cf3772ec67232596dda9259a2691.jpg
@@ -167,16 +167,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/141891961558d547d91a83d76e5e6b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210067800-9781922132499-dying-to-know/"><u>Dying to Know | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210070538-9781532099625-fifty-two-weeks-of-miracles/"><u>Fifty Two Weeks of M.I.R.A.C.L.E.S. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210066908-9780578714646-from-comatose-to-consciousness/"><u>From Comatose To Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210070270-9788121251341-gem-therapy-in-vedic-astrology/"><u>Gem therapy In Vedic Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210069988-9780262297714-meditating-selflessly/"><u>Meditating Selflessly | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210067714-9781925275995-turning-inside-out/"><u>Turning Inside Out | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210070317-9788121253673-vibrational-healing-with-gems/"><u>Vibrational Healing With Gems | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210902791-9780645738018-a-guide-to-natural-meditation/"><u>A Guide To Natural Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210902627-9780593727911-her-rites/"><u>Her Rites | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904111-9781088166178-refining-process-in-the-holy-ghost-school-lafamcall/"><u>REFINING PROCESS IN THE HOLY GHOST SCHOOL - LaFAMCALL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210902854-9781088210253-summary-quiet-the-power-of-introverts-in-a-world-that-cant-stop-talking-quiet/"><u>Summary: Quiet: The Power of Introverts in a World That Can't Stop Talking: Quiet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904120-9781088161678-the-practical-school-of-the-holy-spirit-part-3-of-8-activate-12-eagle-traits-in-you/"><u>The Practical School of the Holy Spirit - Part 3 of 8 - Activate 12 Eagle Traits in You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210902895-9798886856125-thoughts-fired/"><u>Thoughts Fired! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210902768-9798887970332-your-radiant-soul/"><u>Your Radiant Soul | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

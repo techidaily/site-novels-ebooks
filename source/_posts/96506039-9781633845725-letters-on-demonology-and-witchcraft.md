@@ -1,7 +1,7 @@
 ---
 title: Letters on Demonology and Witchcraft | Free Book
-date: 2025-02-13T18:44:42.567Z
-updated: 2025-02-16T00:30:27.042Z
+date: 2025-02-25T18:54:25.237Z
+updated: 2025-03-05T00:17:49.753Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a76f0014b78fcc8915b310ff989b93ab4d9.jpg
@@ -155,16 +155,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c5e3d30d3a9220d536f18b7a235c6a7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210012119-9781547545506-arricchirsi-giocando-alla-lotteria/"><u>Arricchirsi giocando alla lotteria | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210014237-9781789046885-going-within-in-a-time-of-crisis/"><u>Going Within in a Time of Crisis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210012145-9781071539156-megan-va-de-excursion/"><u>Megan va de excursión | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210012062-9781071539590-megan-y-el-ciclista/"><u>Megan y el ciclista | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210012162-9781071540077-megans-grootouders-komen-op-bezoek/"><u>Megan’s Grootouders Komen op Bezoek | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210012029-9781071539293-productividad-la-guia-definitiva-para-aumentar-su-productividad-y-formas-de-vencer-la-dilacion/"><u>Productividad: La Guía Definitiva Para Aumentar Su Productividad Y Formas De Vencer La Dilación | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210014268-9781473583443-you-are-loved/"><u>You Are Loved | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877114-9781601636423-keep-out/"><u>Keep Out! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877121-9781601637307-the-deja-vu-enigma/"><u>The Déjà Vu Enigma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877117-9781601636799-the-nasa-conspiracies/"><u>The NASA Conspiracies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877119-9781601636690-the-real-men-in-black/"><u>The Real Men In Black | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

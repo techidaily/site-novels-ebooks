@@ -1,7 +1,7 @@
 ---
 title: Appalachian Folklore Unveiled | Free Book
-date: 2024-10-23T04:53:08.083Z
-updated: 2024-10-26T22:14:19.298Z
+date: 2025-02-27T01:07:31.238Z
+updated: 2025-03-05T01:31:40.325Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d9b23e4880a7d32fa9a03c70107c81b4b3142b7c1bb2cee0f9bedc933a23687f.jpg
@@ -190,3 +190,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d9b23e4880a7d32fa9a03c70107c81b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210437912-9781250283870-5-minute-morning-magic/"><u>5-Minute Morning Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210438163-9780645360318-codes-to-connect-you-with-source/"><u>Codes to connect you with Source | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210438134-9781631067679-everyday-mantras/"><u>Everyday Mantras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437970-9781250833785-resurrection-a-channeled-text/"><u>Resurrection: A Channeled Text | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437975-9781250810915-the-contemplative-tarot/"><u>The Contemplative Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210437895-9781250852274-the-dhammapada/"><u>The Dhammapada | Free Book</u></a></li>
+</ul></div>
+

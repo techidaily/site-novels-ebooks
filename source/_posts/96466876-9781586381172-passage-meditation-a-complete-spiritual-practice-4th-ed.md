@@ -1,7 +1,7 @@
 ---
 title: Passage Meditation - A Complete Spiritual Practice (4th ed.) | Free Book
-date: 2025-02-08T19:09:31.197Z
-updated: 2025-02-15T21:11:45.287Z
+date: 2025-03-01T01:32:37.847Z
+updated: 2025-03-04T19:50:54.042Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa76fadadba2b9a05bc0a8d3d793cee02a2.jpg
@@ -179,17 +179,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe96fd0d541179963f6fbe77806f7aa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210282902-9781950685653-always-arising/"><u>Always Arising | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282278-9781589239944-magickal-tarot/"><u>Magickal Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282196-9781736532614-rippling-waves/"><u>Rippling Waves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282832-9781912807734-the-hand-reveals/"><u>The Hand Reveals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282855-9781801346344-the-practical-enneagram/"><u>The Practical Enneagram | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283123-9780578901176-the-timeline/"><u>The TimeLine | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210282248-9781737092490-the-ultimate-journey-2nd-edition-2nd-ed/"><u>The Ultimate Journey (2nd Edition) (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283277-9780578899336-your-souls-gift/"><u>Your Soul's Gift | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211172791--2025-horoscope-your-year-ahead/"><u>2025 Horoscope – Your Year Ahead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211172767-9781401975241-craft-your-own-magic/"><u>Craft Your Own Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211173494-9783892016427-la-tua-vita-nellaldiqua-e-la-tua-vita-nellaldila/"><u>La tua vita nell'aldiquà è la tua vita nell'aldilà | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211173060-9798890432001-questions-of-peace/"><u>Questions Of Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211172745-9781952692819-short-journey-home/"><u>Short Journey Home | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

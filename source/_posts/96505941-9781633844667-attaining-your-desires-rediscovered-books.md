@@ -1,7 +1,7 @@
 ---
 title: Attaining Your Desires (Rediscovered Books) | Free Book
-date: 2025-02-14T23:53:16.720Z
-updated: 2025-02-15T20:45:25.260Z
+date: 2025-02-25T18:41:41.770Z
+updated: 2025-03-05T01:51:13.127Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916b3f848fe53849458af89adca59e0ffe86.jpg
@@ -140,13 +140,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5a84a881c18eb853f424a5324040916
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210002096-9781609251147-simple-chinese-astrology/"><u>Simple Chinese Astrology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002094-9781609250843-the-weiser-field-guide-to-ghosts/"><u>The Weiser Field Guide to Ghosts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002091-9781609257910-the-zodiac-and-the-salts-of-salvation/"><u>The Zodiac and the Salts of Salvation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002103-9781609250003-when-fear-falls-away/"><u>When Fear Falls Away | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210861008-9781454948476-1001-dreams/"><u>1001 Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210861007-9781454950820-astrosex/"><u>Astrosex | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210860708-9781088124840-healing-from-within/"><u>Healing From Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210860841-9781802275421-mind-capsules/"><u>Mind Capsules | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210861009-9781454952589-tarot-basics/"><u>Tarot Basics | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

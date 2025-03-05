@@ -1,7 +1,7 @@
 ---
 title: Thought Vibration (Rediscovered Books) | Free Book
-date: 2025-02-14T00:40:05.675Z
-updated: 2025-02-16T00:49:04.952Z
+date: 2025-03-01T21:03:27.753Z
+updated: 2025-03-04T22:29:36.056Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149c1b028a0aefe4cef624c85a1281954bd5.jpg
@@ -142,17 +142,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba3026411ff0e3e43e5ea88858e4149
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210048886-9780753734483-fortunes-in-a-tea-cup/"><u>Fortunes in a Tea Cup | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210052487-9780806540801-mind-manipulation/"><u>Mind Manipulation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210053169-9780578665764-mismatched-luggage/"><u>Mismatched Luggage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210053300-9780990446897-reiki-21st-century-updated-methods-teachings-attunements-from-a-20th-century-master/"><u>Reiki 21st Century Updated Methods, Teachings, Attunements from a 20th Century Master | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210048881-9781474619431-the-wisdom-of-call-the-midwife/"><u>The Wisdom of Call The Midwife | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210053132-9780578650890-wealth-mindset/"><u>Wealth Mindset | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210053202-9780999462676-what-you-dont-know-can-be-fatal/"><u>What You Don't Know Can Be Fatal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210052920-9780486847481-xiu-yang/"><u>Xiu Yang | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877265-9781612831251-god-is-not-dead/"><u>God Is Not Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877259-9781612830520-how-quantum-activism-can-save-civilization/"><u>How Quantum Activism Can Save Civilization | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877262-9781612832876-mental-radio/"><u>Mental Radio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877258-9781612832418-signs-of-the-times/"><u>Signs of the Times | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

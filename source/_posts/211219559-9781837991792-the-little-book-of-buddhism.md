@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Buddhism | Free Book
-date: 2024-10-22T22:08:33.130Z
-updated: 2024-10-27T03:24:55.807Z
+date: 2025-02-25T17:57:34.709Z
+updated: 2025-03-04T23:13:47.891Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7dc58b6d7b21008d886ffa84d943887b8f6eaacef17eb8e18beb4c5236ea8902.jpg
@@ -151,3 +151,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7dc58b6d7b21008d886ffa84d943887
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210411313-9781722526986-awakened-imagination/"><u>Awakened Imagination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411363-9781761037429-chakras/"><u>Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411367-9781761037450-crystal-healing/"><u>Crystal Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411370-9780645348514-light-ways/"><u>Light Ways | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411315-9781722526993-seedtime-and-harvest/"><u>Seedtime and Harvest | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411314-9781722527006-the-law-and-the-promise/"><u>The Law and the Promise | Free Book</u></a></li>
+</ul></div>
+

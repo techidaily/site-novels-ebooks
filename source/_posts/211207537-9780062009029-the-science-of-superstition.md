@@ -1,7 +1,7 @@
 ---
 title: The Science of Superstition | Free Book
-date: 2024-10-26T01:53:28.788Z
-updated: 2024-10-27T00:40:18.829Z
+date: 2025-02-25T18:37:27.146Z
+updated: 2025-03-04T21:59:16.183Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f9e5a033a67bc0e0b8854982a81e72bb58e8ebc61061564c25cf84efd9a93bf1.jpg
@@ -132,3 +132,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f9e5a033a67bc0e0b8854982a81e72b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210557710-9781734226546-anorexia-more-articles-from-thejournal-1999-2006-with-a-focus-on-anorexia/"><u>Anorexia - More articles from theJournal (1999-2006) with a focus on Anorexia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210557416-9780744068948-crystals/"><u>Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210557129-9798985735291-ethos/"><u>Ethos | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210557711-9781990346071-poradnik-ce-5/"><u>PORADNIK CE-5 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210557699-9798985908213-venus-book-1/"><u>Venus, Book 1 | Free Book</u></a></li>
+</ul></div>
+

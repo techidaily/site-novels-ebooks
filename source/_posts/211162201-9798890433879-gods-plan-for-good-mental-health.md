@@ -1,7 +1,7 @@
 ---
 title: God's Plan for Good Mental Health | Free Book
-date: 2024-10-24T21:10:48.835Z
-updated: 2024-10-26T19:37:41.885Z
+date: 2025-02-25T17:13:12.561Z
+updated: 2025-03-04T20:05:05.417Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f502b8be58e46b2e945f0862ea151425ecfe86d40d4312939181810eb98998a2.jpg
@@ -142,3 +142,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f502b8be58e46b2e945f0862ea15142
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210712970-9781398408081-a-true-story/"><u>A True Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210712411-9781737410676-the-fun-of-loving-jesus/"><u>The Fun of Loving Jesus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210712985-9781398431492-understanding-tarot/"><u>Understanding Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210712993-9789948812210-taarf-aal-nfsk-get-to-know-yourself/"><u>تعرّف على نفسك - Get to Know Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210712966-9789948810254-zaayma-alroh-alhloa/"><u>زعيمة الروح الحلوة | Free Book</u></a></li>
+</ul></div>
+

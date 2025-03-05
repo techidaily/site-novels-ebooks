@@ -1,7 +1,7 @@
 ---
 title: Between the Directive and the Destination is the Journey | Free Book
-date: 2024-10-24T17:08:59.444Z
-updated: 2024-10-27T00:06:34.186Z
+date: 2025-02-28T19:54:00.547Z
+updated: 2025-03-04T21:50:17.737Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/43311a0e304ba5a6b3fc1fe7718fedd32b5871bcd94ba91f5485a02b76099096.jpg
@@ -141,3 +141,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/43311a0e304ba5a6b3fc1fe7718fedd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210642121-9781662455445-cognitive-liberty/"><u>Cognitive Liberty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642052-9781788179515-energy-rules/"><u>Energy Rules | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642107-9781662483523-from-the-other-side-of-the-bed/"><u>From the Other Side of the Bed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210642038-9781786787446-the-moon-dust-dream-dictionary/"><u>The Moon Dust Dream Dictionary | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: The Law of the Higher Potential | Free Book
-date: 2025-02-11T20:56:42.469Z
-updated: 2025-02-15T20:08:26.974Z
+date: 2025-02-26T01:45:28.876Z
+updated: 2025-03-05T01:47:56.984Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c175f1d4a295b215f02769aae220a2eea7.jpg
@@ -135,13 +135,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/61ea19905357b8bdbe63a17bb67ba5c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210113114-9782824634326-aux-frontieres-de-lesprit/"><u>Aux Frontières de L'Esprit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210112798-9780648951940-little-bit/"><u>Little Bit | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210112793-9781513663616-nikola-tesla-volume-five/"><u>Nikola Tesla: Volume Five | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210112422-9781722526245-think-and-grow-rich/"><u>Think and Grow Rich | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932816-9781855842861-an-exercise-for-karmic-insight/"><u>An Exercise for Karmic Insight | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932812-9781855842731-angels/"><u>Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932811-9781912230570-bees-and-the-ancient-mysteries/"><u>Bees and the Ancient Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932818-9781855842878-the-dead-are-with-us/"><u>The Dead Are With Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932814-9781855843158-the-evolution-of-consciousness/"><u>The Evolution of Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932807-9781855843271-the-second-coming-of-christ/"><u>The Second Coming of Christ | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932817-9781912230792-the-temple-and-the-grail/"><u>The Temple and the Grail | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932815-9781855843608-verses-and-meditations/"><u>Verses and Meditations | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

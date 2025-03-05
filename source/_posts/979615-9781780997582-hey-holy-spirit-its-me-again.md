@@ -1,7 +1,7 @@
 ---
 title: Hey, Holy Spirit, It's Me Again | Free Book
-date: 2025-02-13T17:05:10.634Z
-updated: 2025-02-15T18:42:59.588Z
+date: 2025-03-03T19:08:05.489Z
+updated: 2025-03-04T16:50:07.310Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c156d643e85746633a7219a00d0275ffee12.jpg
@@ -138,16 +138,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ba2ea6ad29089335292b543c0829c15
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209983774-9781644110522-astrology-for-mystics/"><u>Astrology for Mystics | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209983775-9781644111192-sacred-geometry-language-of-the-angels/"><u>Sacred Geometry: Language of the Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209983779-9781644111291-secrets-of-the-druids-2nd-ed/"><u>Secrets of the Druids (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209983778-9781591433750-shamanic-mysteries-of-peru/"><u>Shamanic Mysteries of Peru | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209983776-9781644110447-the-lost-pillars-of-enoch/"><u>The Lost Pillars of Enoch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209983782-9781620559185-vibrational-nutrition/"><u>Vibrational Nutrition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209983780-9781644111628-vibrational-sound-healing/"><u>Vibrational Sound Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847671-9781801520744-concentration/"><u>Concentration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847628-9781988387260-human-nature/"><u>Human Nature | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847422-9781685680862-la-paz-interior/"><u>La paz interior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847543-9780996510387-living-the-deepest-truth-you-know/"><u>Living the Deepest Truth You Know | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847650-9798987504673-moments-of-edification-volume-1/"><u>Moments of Edification: Volume 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847625-9781958356210-the-hills-we-climb-love-it-hate-it-embrace-itlifes-journey/"><u>The Hills We Climb Love It, Hate It, Embrace It...Life's Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847421-9781685681067-vive-sin-miedo/"><u>Vive sin miedo | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Summary of Cliff Tan's Feng Shui Modern | Free Book
-date: 2024-10-22T22:05:50.540Z
-updated: 2024-10-26T17:27:06.262Z
+date: 2025-03-01T01:07:07.464Z
+updated: 2025-03-04T18:24:49.763Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5cd8bc5641c951ad607c4b74332088366dc899393aee0cd561166a730854145a.jpg
@@ -135,3 +135,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5cd8bc5641c951ad607c4b743320883
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210476996-9780801888977-arcana-mundi-a-collection-of-ancient-texts/"><u>Arcana Mundi: A Collection of Ancient Texts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476720-9781504074650-beyond-any-kind-of-god/"><u>Beyond Any Kind of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210477048-9781421401171-investigating-the-supernatural/"><u>Investigating the Supernatural | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476837-9781789044461-practically-pagan-an-alternative-guide-to-planet-friendly-living/"><u>Practically Pagan - An Alternative Guide to Planet Friendly Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476842-9781803411385-the-celtic-wheel-of-the-year/"><u>The Celtic Wheel of the Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476410-9780593420959-the-open-air-life/"><u>The Open-Air Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476537-9781401970468-the-wisdom-of-the-council/"><u>The Wisdom of The Council | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210476839-9781789047905-the-witchs-book-of-simples/"><u>The Witch's Book of Simples | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210475749-9781638445098-views-from-shenir-mount-of-light/"><u>Views From Shenir (Mount of Light) | Free Book</u></a></li>
+</ul></div>
+

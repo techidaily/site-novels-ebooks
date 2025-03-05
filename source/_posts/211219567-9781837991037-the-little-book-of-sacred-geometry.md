@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Sacred Geometry | Free Book
-date: 2024-10-21T05:54:03.536Z
-updated: 2024-10-27T01:32:19.020Z
+date: 2025-02-27T00:06:45.024Z
+updated: 2025-03-04T23:10:42.809Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/99bc828a7308ce0eabdf9ee3959cd748a8f11fde446436900771c6fef19b4de0.jpg
@@ -148,3 +148,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/99bc828a7308ce0eabdf9ee3959cd74
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210414971-9781639452583-a-year-in-balance/"><u>A YEAR IN BALANCE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210414913-9781955346122-deeper-magic/"><u>Deeper Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210414500-9781476645124-dream-medicine/"><u>Dream Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415047-9781777920210-get-out-of-your-head/"><u>Get Out of Your Head | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210414690-9781631599392-the-thrifty-witchs-book-of-simple-spells/"><u>The Thrifty Witch's Book of Simple Spells | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415786-9781623176969-walk/"><u>WALK | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: The Secret Doctrine of the Rosicrucians | Free Book
-date: 2024-10-24T23:25:57.043Z
-updated: 2024-10-26T18:31:51.864Z
+date: 2025-02-26T17:00:37.563Z
+updated: 2025-03-04T18:58:39.205Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d8d253a6938e8e60b7e6eeb9631b0151abba476395c518cf5cfe4f3a1638c40b.jpg
@@ -164,3 +164,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d8d253a6938e8e60b7e6eeb9631b015
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210662625-9781633412736-african-american-magick/"><u>African American Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662624-9781633412439-enoch-and-the-return-of-the-gods/"><u>Enoch and the Return of the Gods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662631-9781633412958-heal-the-witch-wound/"><u>Heal the Witch Wound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662633-9781633412934-the-complete-enochian-dictionary/"><u>The Complete Enochian Dictionary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662628-9781612834863-the-game-of-life-and-how-to-play-it-gift-edition/"><u>The Game of Life and How to Play It (Gift Edition) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662629-9781633412422-the-gods-were-astronauts/"><u>The Gods Were Astronauts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662630-9781633412606-the-magic-in-your-genes/"><u>The Magic in Your Genes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662635-9781633413009-the-treadwells-book-of-plant-magic/"><u>The Treadwell's Book of Plant Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210662634-9781633412965-uncharted/"><u>Uncharted | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune | Free Book
-date: 2025-02-13T23:56:19.797Z
-updated: 2025-02-15T23:10:20.452Z
+date: 2025-03-02T17:40:17.041Z
+updated: 2025-03-04T22:52:11.400Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af3da1349f1040f4c4ada5842be7ce239bb.jpg
@@ -142,17 +142,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7e578b507c404eb5f705c80f26f12af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210101239-9781922456014-breakthrough/"><u>BREAKTHROUGH | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210101337-9781734337839-hell-no-reincarnation/"><u>Hell No, Reincarnation? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210101207-9781913479503-just-be/"><u>Just BE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210101435-9781504064545-survival-lessons/"><u>Survival Lessons | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210101205-9781913479428-the-search-for-mind-body-energy/"><u>The Search for Mind-Body Energy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210100832-9780648899716-transformation-and-the-golden-keys/"><u>Transformation and the Golden Keys | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210100745-9781646542819-unbreakable/"><u>Unbreakable | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210101227-9781945064272-who-do-you-think-you-are-365-meditations-and-the-books-they-came-from/"><u>Who Do You Think You Are? 365 Meditations and the Books They Came From | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926973-9781856358422-conspiracy-of-silence/"><u>Conspiracy of Silence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210927045-9780857168054-i-talk-to-angels/"><u>I Talk to Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929074-9781781484173-infinite-awakening-a-miraculous-journey-for-the-advanced-soul/"><u>Infinite Awakening - A Miraculous Journey for the Advanced Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926569-9783910465039-overcoming-fear/"><u>Overcoming Fear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926311-9781903353561-soul-symbol-and-imagination/"><u>Soul, Symbol and Imagination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926676-9781915776082-speaking-with-angels/"><u>Speaking with Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926804-9781781171868-states-of-denial-the-tuskar-rock-incident-and-other-mysteries/"><u>States of Denial: The Tuskar Rock Incident and other Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926560-9781912992522-the-alpha-and-the-omega/"><u>The Alpha and the Omega | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926330-9781903353400-vocational-astrology/"><u>Vocational Astrology | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: How to Let Things Go | Free Book
-date: 2024-10-22T18:54:44.402Z
-updated: 2024-10-27T03:43:41.729Z
+date: 2025-02-28T18:16:22.639Z
+updated: 2025-03-04T23:27:53.260Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a0ef324f558923f18709e128ebb790c74671b1aa0db940f1d14ec3a4e1ea9e26.jpg
@@ -148,3 +148,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a0ef324f558923f18709e128ebb790c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210391962-9781734610642-claiming-my-soul/"><u>Claiming My Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210392157-9781504067980-dictionary-of-poisons/"><u>Dictionary of Poisons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210391741-9781631957123-estimated-time-of-departure/"><u>Estimated Time of Departure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210391984-9788794110129-inawainge-el-que-ve/"><u>Iñawaingé - El que ve | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210393724-9780834844216-pause-rest-be/"><u>Pause, Rest, Be | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210391759-9780646830094-run-mary-run/"><u>Run Mary Run | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210392018-9781914447273-the-white-witchs-book-of-healing/"><u>The White Witch's Book of Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210393498-9789948834359-hdyth-alroh/"><u>حديث الروح | Free Book</u></a></li>
+</ul></div>
+

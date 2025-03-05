@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2025-02-15T00:36:47.449Z
-updated: 2025-02-16T02:39:13.115Z
+date: 2025-02-27T00:35:45.326Z
+updated: 2025-03-04T19:10:59.362Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99189a7777dc630bad06d846d73dd09e1ba.jpg
@@ -137,14 +137,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0a799a3f25c1d29b9da2ae2969dfa99
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210091971-9780997466683-believe-angels-dont-lie/"><u>Believe . . . Angels Don't Lie | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210091788-9781439668054-haunts-of-the-white-city/"><u>Haunts of the White City | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210091797-9781614234388-kentucky-book-of-the-dead/"><u>Kentucky Book of the Dead | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210091798-9781614237105-new-hampshire-book-of-the-dead/"><u>New Hampshire Book of the Dead | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210094003-9781789044751-scavengers-of-beauty/"><u>Scavengers of Beauty | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210925795-9780639939537-acta-non-verba/"><u>Acta Non Verba | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210922806-9781803814254-destiny-blockers/"><u>Destiny Blockers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210925076-9781920707385-embrace-your-elegant-power/"><u>Embrace Your Elegant Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210920412-9780719826863-hedge-witch/"><u>Hedge Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210925708-9780639992891-life-simplified/"><u>Life Simplified | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210920792-9780719831577-sea-witchs-companion/"><u>Sea Witch's Companion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210925914-9780639992983-train-naked/"><u>Train Naked | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

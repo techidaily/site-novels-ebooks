@@ -1,7 +1,7 @@
 ---
 title: Le guide moderne des Mudras | Free Book
-date: 2024-10-24T23:52:34.754Z
-updated: 2024-10-26T16:57:37.751Z
+date: 2025-03-03T01:23:42.927Z
+updated: 2025-03-05T00:14:35.026Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/294818887007ec94a7f392d0395473987b2f3d796e17b8743cd514a4c9817f87.jpg
@@ -145,3 +145,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/294818887007ec94a7f392d03954739
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210549588-9781913618285-feng-shui/"><u>Feng Shui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210549223-9781788178853-human-design/"><u>Human Design | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210549585-9781913618292-i-ching/"><u>I Ching | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210549586-9781913618308-numerology/"><u>Numerology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210549505-9781888729771-the-intuitive-warrior/"><u>The Intuitive Warrior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210549218-9781401963231-the-spirit-of-harriet-tubman/"><u>The Spirit of Harriet Tubman | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210548936-9780008472375-the-wall/"><u>The Wall | Free Book</u></a></li>
+</ul></div>
+

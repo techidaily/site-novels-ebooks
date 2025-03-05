@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Crystal Healing | Free Book
-date: 2024-10-23T22:35:14.559Z
-updated: 2024-10-26T23:44:05.057Z
+date: 2025-03-02T23:42:37.940Z
+updated: 2025-03-04T16:44:58.690Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/19aee3a7e62dc82fad4ac7ff56f281946cc962963c3dc01a6f20283be67efa1b.jpg
@@ -138,3 +138,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/19aee3a7e62dc82fad4ac7ff56f2819
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210375470-9781940837598-art-and-yoga/"><u>Art and Yoga | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210375471-9781940837611-enlightened-bodies/"><u>Enlightened Bodies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210375475-9781940837635-everyday-grace/"><u>Everyday Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210375265-9781786786432-how-to-be-highly-sensitive-and-empowered/"><u>How To Be Highly Sensitive and Empowered | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210375128-9781942125891-rojin-buddhas-mystical-power/"><u>Rojin, Buddha's Mystical Power | Free Book</u></a></li>
+</ul></div>
+

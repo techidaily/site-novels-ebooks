@@ -1,7 +1,7 @@
 ---
 title: "The Astral Plane: Its Scenery, Inhabitants, and Phenomena | Free Book"
-date: 2025-02-10T02:42:54.818Z
-updated: 2025-02-15T18:42:10.196Z
+date: 2025-03-02T01:18:07.910Z
+updated: 2025-03-05T00:46:57.803Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e529291b5772e7ca54c4b846ff9a7eb1fc7.jpg
@@ -136,15 +136,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/fe884c640f4cd6032a190febf2160e5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210257828-9781662415180-faith/"><u>F.A.I.T.H. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210257902-9781734850413-learn-about-life-force-energy-from-a-master/"><u>Learn About Life Force Energy From A Master | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210257867-9780972866880-love/"><u>Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210256674-9781528767774-psychomancy-spirit-rappings-and-table-tippings-exposed/"><u>Psychomancy - Spirit-Rappings and Table-Tippings Exposed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210256718-9781641402019-seeking-after-the-man-in-me/"><u>Seeking after the Man in Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210257886-9791029912375-the-machinery-of-the-mind-annotated/"><u>The Machinery of the Mind (Annotated) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145207-9781804530184-aries/"><u>Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145209-9781804530511-big-witch-energy/"><u>Big Witch Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145205-9781804530337-cancer/"><u>Cancer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145199-9781804530320-gemini/"><u>Gemini | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145203-9781804530344-leo/"><u>Leo | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145198-9781804530375-scorpio/"><u>Scorpio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145201-9781804530191-taurus/"><u>Taurus | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

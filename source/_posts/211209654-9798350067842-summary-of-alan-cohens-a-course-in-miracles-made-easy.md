@@ -1,7 +1,7 @@
 ---
 title: Summary of Alan Cohen's A Course in Miracles Made Easy | Free Book
-date: 2024-10-25T22:44:51.063Z
-updated: 2024-10-26T18:43:46.047Z
+date: 2025-03-03T23:20:03.214Z
+updated: 2025-03-04T17:04:17.677Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c35815aa572411753599b93216b862d764127c010def4c603f959250c9164e26.jpg
@@ -135,3 +135,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c35815aa572411753599b93216b862d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210469065-9798985221053-a-tale-of-two-worlds/"><u>A Tale of Two Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210469731-9781401964221-answers-from-the-ancestral-realms/"><u>Answers from the Ancestral Realms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210469029-9781739783600-beat-the-gun/"><u>Beat the Gun | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210469332-9780760372807-find-your-cosmic-calling/"><u>Find Your Cosmic Calling | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210469158-9781638811480-story-1987/"><u>Story 1987 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210469047-9780998987095-the-spiritual-design/"><u>The Spiritual Design | Free Book</u></a></li>
+</ul></div>
+

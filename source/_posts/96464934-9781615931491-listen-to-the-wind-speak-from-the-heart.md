@@ -1,7 +1,7 @@
 ---
 title: Listen to the Wind, Speak from the Heart | Free Book
-date: 2025-02-11T16:16:48.051Z
-updated: 2025-02-15T16:42:23.809Z
+date: 2025-03-01T17:21:13.774Z
+updated: 2025-03-04T20:18:14.688Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941414b01e3c18dff719542f7e4aae949f2f.jpg
@@ -147,16 +147,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/73c3cd4dbc9ff98aafe7bbf04227941
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210270976-9781910531501-annual-predictive-techniques-of-the-greek-arabic-and-indian-astrologers/"><u>Annual Predictive Techniques of the Greek, Arabic and Indian Astrologers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210271034-9781925921632-mystical/"><u>Mystical | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210271104-9781528767736-personal-experiences-in-spiritualism-including-the-official-account-and-record-of-the-american-palladino-saances/"><u>Personal Experiences in Spiritualism - Including the Official Account and Record of the American Palladino SÃ©ances | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210271101-9781528767835-philosophy-of-mystery/"><u>Philosophy of Mystery | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270692-9781250809384-seeking-wisdom/"><u>Seeking Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210271053-9780648921073-tree-with-no-leaves/"><u>Tree With No Leaves | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270728-9781952022104-7j6r7kceio2fjoudvcao7ioi66gc7jq0ioyngoq1rck/"><u>작전 테라 (새로운 지구) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211158235-9781462924585-its-okay-not-to-look-for-the-meaning-of-life/"><u>It's Okay Not to Look for the Meaning of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211158567-9798986210698-my-little-prayer-book/"><u>My Little Prayer Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211158463-9780645923131-never-retire/"><u>Never Retire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159271-9780062976895-spells-for-the-modern-mystic/"><u>Spells for the Modern Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211158331-9798886921731-spirit-of-life/"><u>Spirit of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211158363-9798987356012-the-fairytale-god-3rd-ed/"><u>The Fairytale God (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211158346-9798869007100-the-foundation/"><u>The Foundation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211159325-9780061747984-the-history-of-last-nights-dream/"><u>The History of Last Night's Dream | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211158312-9798886921977-thoughts-are-your-reality/"><u>Thoughts Are Your Reality | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

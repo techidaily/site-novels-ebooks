@@ -1,7 +1,7 @@
 ---
 title: Awaken Your Inner Wisdom | Free Book
-date: 2025-02-09T17:36:58.236Z
-updated: 2025-02-16T00:47:27.403Z
+date: 2025-02-27T17:16:23.244Z
+updated: 2025-03-04T22:48:27.423Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bff765ca9a59aba5794836b3a96b2b0e315.jpg
@@ -136,18 +136,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8a9add175c404e80b579b36207d51bf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209915658-9781761031533-astral-projection/"><u>Astral Projection | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209915655-9781761031540-crystal-healing/"><u>Crystal Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209915084-9781794825390-kisah-hikayat-perjalanan-ruh-umat-manusia-di-alam-barzah-edisi-bahasa-inggris-standar-version/"><u>Kisah Hikayat Perjalanan Ruh Umat Manusia Di Alam Barzah Edisi Bahasa Inggris Standar Version | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209915657-9781761031519-psychic-development/"><u>Psychic Development | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209914931-9781734393217-signs-surround-you/"><u>Signs Surround You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209915656-9781761031557-spirit-guides/"><u>Spirit Guides | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209915611-9781950189182-the-book-of-messages/"><u>The Book of Messages | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209915598-9781420965322-the-secret-of-the-ages/"><u>The Secret of the Ages | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209915081-9781734302295-vipassana/"><u>Vipassana | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210793337-9798886161731-and-you-shall-be-free/"><u>And You Shall Be Free | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210792711-9781616406240-astrology-and-the-art-of-healing/"><u>Astrology and the Art of Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791602-9780711283268-goddess-stories/"><u>Goddess Stories | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791570-9780711288249-mindfulness-in-baking/"><u>Mindfulness in Baking | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791573-9780711288201-mindfulness-in-wild-swimming/"><u>Mindfulness in Wild Swimming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210792915-9781925442076-out-of-this-world/"><u>Out Of This World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791568-9780760385784-the-complete-book-of-birthdays-gift-edition/"><u>The Complete Book of Birthdays - Gift Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210792117-9780473553609-unwrap-your-dreams/"><u>Unwrap Your Dreams | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

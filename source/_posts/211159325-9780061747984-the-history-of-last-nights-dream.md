@@ -1,7 +1,7 @@
 ---
 title: The History of Last Night's Dream | Free Book
-date: 2024-10-19T16:29:10.063Z
-updated: 2024-10-27T02:24:13.801Z
+date: 2025-02-28T02:03:23.208Z
+updated: 2025-03-04T22:41:53.377Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0dcd61b08cf098a8486931fead5772b2e9f6464e63b82fd6d6a4d17b6821738a.jpg
@@ -151,3 +151,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0dcd61b08cf098a8486931fead5772b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210706157-9780876129913-a-ciencia-da-religiao/"><u>A Ciência da Religião | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210706151-9780578270555-guardians-of-the-ancient-one/"><u>Guardians of The Ancient One | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210706027-9781737891444-prema-kirtan/"><u>Prema Kirtan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210706045-9780982889442-reclaiming-the-wild-soul/"><u>Reclaiming the Wild Soul | Free Book</u></a></li>
+</ul></div>
+

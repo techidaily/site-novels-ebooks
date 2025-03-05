@@ -1,7 +1,7 @@
 ---
 title: Hypnosis in the Service of Meditation | Free Book
-date: 2025-02-09T21:39:26.631Z
-updated: 2025-02-15T20:11:50.851Z
+date: 2025-03-04T00:46:34.072Z
+updated: 2025-03-04T21:44:02.774Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f16e6ad914f6db2f6f0d36e2ff01eb4b9c.jpg
@@ -167,16 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5756bdfdfd0ef8f2e3d5f88d90bfe0f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210233083-9781633411845-casting-lots/"><u>Casting Lots | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233076-9780892546909-rites-of-the-mummy/"><u>Rites of the Mummy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233082-9781633412149-the-big-book-of-magical-incense/"><u>The Big Book of Magical Incense | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233079-9781612834672-the-healing-power-of-african-american-spirituality/"><u>The Healing Power of African-American Spirituality | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233085-9781633412316-the-ufo-abduction-book/"><u>The UFO Abduction Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233081-9781633411456-witch-queens-voodoo-spirits-and-hoodoo-saints/"><u>Witch Queens, Voodoo Spirits, and Hoodoo Saints | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210233086-9781633412170-yemaya/"><u>Yemaya | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211115685--being-peace/"><u>Being Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211115671-9781588347756-mindful-eye-playful-eye/"><u>Mindful Eye, Playful Eye | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114521-9781804131251-paganism-persisting/"><u>Paganism Persisting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114720-9798868906282-pendulum-healing/"><u>Pendulum Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211115687-9781401976064-remember-your-roots/"><u>Remember Your Roots | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211114390-9780994284587-the-book-of-hatma/"><u>The Book of Hatma | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

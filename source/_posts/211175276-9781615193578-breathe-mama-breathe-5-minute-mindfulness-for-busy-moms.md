@@ -1,7 +1,7 @@
 ---
 title: "Breathe, Mama, Breathe: 5-Minute Mindfulness for Busy Moms | Free Book"
-date: 2024-10-20T16:32:39.251Z
-updated: 2024-10-26T23:42:21.207Z
+date: 2025-03-01T19:11:33.730Z
+updated: 2025-03-05T01:09:22.955Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c0c4208b5b213a071595fafbcb879cd6400375bbbd98657b5e0c3069ca4fb670.jpg
@@ -163,3 +163,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c0c4208b5b213a071595fafbcb879cd
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210659422-9798886802986-daily-dose-of-melancholy/"><u>Daily Dose of Melancholy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659415-9781733772273-despertando-a-gaia/"><u>Despertando a Gaia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659444-9798985627114-inspired-meditations-book-i/"><u>Inspired Meditations: Book I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659455-9781951879105-memoarer-fran-andra-dimensionen-del-1/"><u>Memoarer Från Andra Dimensionen, Del 1 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659358-9781685702175-messages-he-gave-me/"><u>Messages He Gave Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659349-9781639035038-social-media-gods-way/"><u>Social Media God's Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659493-9781951879136-the-spiritual-design-wave-3/"><u>The SPIRITUAL DESIGN WAVE 3 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210658804-9781683355915-witching-hour/"><u>Witching Hour | Free Book</u></a></li>
+</ul></div>
+

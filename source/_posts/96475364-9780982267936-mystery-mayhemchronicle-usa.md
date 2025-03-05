@@ -1,7 +1,7 @@
 ---
 title: "MYSTERY-MAYHEM:CHRONICLE USA | Free Book"
-date: 2025-02-09T00:57:02.282Z
-updated: 2025-02-16T01:39:13.622Z
+date: 2025-03-03T00:29:58.873Z
+updated: 2025-03-04T19:55:30.712Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8dfb07fd8fab551de1af27e5b6b629334482a128390c36ad4018a228f91e165a.jpg
@@ -134,14 +134,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8dfb07fd8fab551de1af27e5b6b6293
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210210858-9780998608853-grief-and-anger/"><u>Grief and Anger | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210211036-9781735852485-im-done/"><u>I'm Done. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210210666-9781722521554-in-tune-with-the-infinite-condensed-classics/"><u>In Tune With the Infinite (Condensed Classics) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210210671-9780578846897-ingredients-of-singleness/"><u>Ingredients Of Singleness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210211133-9781528767828-the-marvels-beyond-science-being-a-record-of-progress-made-in-the-reduction-of-occult-phenomena-to-a-scientific-basis/"><u>The Marvels Beyond Science - Being a Record of Progress Made in the Reduction of Occult Phenomena to a Scientific Basis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211079992-9798888321898-angel-airlines/"><u>Angel Airlines | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211074794-9781449442545-be-a-light-unto-yourself/"><u>Be a Light Unto Yourself | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211080540-9798889603658-knock-knock-a-true-ghost-story/"><u>Knock! Knock! A True Ghost Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2110748-9781476621050-parapsychology/"><u>Parapsychology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211075179-9782017229452-pratiquer-left/"><u>Pratiquer l'EFT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211074509-9781841815725-the-little-book-of-inner-peace/"><u>The Little Book of Inner Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211074511-9781841815732-you-are-my-sun-and-my-moon-and-all-my-stars/"><u>You are My Sun and My Moon and All My Stars | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

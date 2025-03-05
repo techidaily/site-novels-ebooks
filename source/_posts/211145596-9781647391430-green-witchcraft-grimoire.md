@@ -1,7 +1,7 @@
 ---
 title: Green Witchcraft Grimoire | Free Book
-date: 2024-10-22T20:44:25.604Z
-updated: 2024-10-26T20:35:07.247Z
+date: 2025-03-01T17:41:36.761Z
+updated: 2025-03-04T20:29:10.691Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e3b7545d441534c42fc06e6d8edf2337d887581428c8093b39d57699881572ff.jpg
@@ -165,3 +165,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e3b7545d441534c42fc06e6d8edf233
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210761602-9781683644279-angels-and-archangels/"><u>Angels and Archangels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761617-9781683644835-freedom-for-all-of-us/"><u>Freedom for All of Us | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761638-9781683647034-maiden-to-mother/"><u>Maiden to Mother | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761606-9781683644224-rewilding/"><u>Rewilding | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761636-9781683646761-star-child/"><u>Star Child | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761611-9781683644293-stay-woke/"><u>Stay Woke | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761630-9781683646150-the-direct-way/"><u>The Direct Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761631-9781683646631-the-way-of-the-monk/"><u>The Way of the Monk | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: The Geoengineered Transhuman (2nd ed.) | Free Book
-date: 2024-10-23T05:58:01.747Z
-updated: 2024-10-27T03:50:06.012Z
+date: 2025-02-25T16:51:22.938Z
+updated: 2025-03-04T17:34:28.253Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a64f04ddb8cb296992e0778a38b91f3d9bbe2651959d28466b01d69e5821019b.jpg
@@ -166,3 +166,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a64f04ddb8cb296992e0778a38b91f3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210768214-9781639190034-el-tarot-aprenda-a-leer-las-cartas/"><u>El tarot. Aprenda a leer las cartas | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768237-9781639190683-los-ninos-del-sueno/"><u>Los niños del sueño | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768236-9781639190720-todo-el-zodiaco-aries/"><u>Todo el Zodiaco. Aries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768249-9781639190768-todo-el-zodiaco-geminis/"><u>Todo el Zodiaco. Géminis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210768248-9781639190782-todo-el-zodiaco-leo/"><u>Todo el Zodiaco. Leo | Free Book</u></a></li>
+</ul></div>
+

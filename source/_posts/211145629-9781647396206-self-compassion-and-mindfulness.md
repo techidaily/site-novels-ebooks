@@ -1,7 +1,7 @@
 ---
 title: Self-Compassion and Mindfulness | Free Book
-date: 2024-10-23T01:17:26.536Z
-updated: 2024-10-27T01:04:13.267Z
+date: 2025-03-01T19:34:12.857Z
+updated: 2025-03-04T17:58:39.252Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1e80a8c4a4c9984ebd6a1fc9f86e70037a36a5b04a5ae46da85ba09fe26b5aa8.jpg
@@ -162,3 +162,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1e80a8c4a4c9984ebd6a1fc9f86e700
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210761772-9781649631350-a-year-in-practice/"><u>A Year in Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761774-9781591798798-eyes-wide-open/"><u>Eyes Wide Open | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761782-9781683647638-how-to-be-loving/"><u>How to Be Loving | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761770-9781591798361-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761786-9781683648628-opening-to-darkness/"><u>Opening to Darkness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761763-9781622030736-saint-francis-of-assisi/"><u>Saint Francis of Assisi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761781-9781622034680-tending-the-heart-fire/"><u>Tending the Heart Fire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761760-9781604073348-tibetan-sound-healing/"><u>Tibetan Sound Healing | Free Book</u></a></li>
+</ul></div>
+

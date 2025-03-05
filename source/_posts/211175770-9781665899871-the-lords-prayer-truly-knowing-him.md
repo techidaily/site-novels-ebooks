@@ -1,7 +1,7 @@
 ---
 title: The Lord's Prayer. Truly Knowing Him | Free Book
-date: 2024-10-22T18:32:05.064Z
-updated: 2024-10-26T21:41:36.771Z
+date: 2025-03-01T19:15:32.161Z
+updated: 2025-03-04T17:43:12.206Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50ce915dc0a8dffeeb0f6391ee89027dce2e7522672a365b99212946670c7621.jpg
@@ -214,3 +214,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50ce915dc0a8dffeeb0f6391ee89027
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210661228-9781914447624-calm-up/"><u>Calm Up | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661205-9798985332018-god-is-realyou-dont-even-have-to-wonder/"><u>God is REAL...You Don't Even Have to Wonder | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661125-9798885055895-grannyaeurtms-pearls-of-wisdom/"><u>GrannyaEUR(tm)s Pearls of Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661179-9783950528428-the-soul-on-fire/"><u>The Soul on Fire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210661107-9783986539078-wicca-for-beginners/"><u>WICCA FOR BEGINNERS | Free Book</u></a></li>
+</ul></div>
+

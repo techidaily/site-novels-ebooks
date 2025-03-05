@@ -1,7 +1,7 @@
 ---
 title: Awakening the Truth Frequency | Free Book
-date: 2024-10-22T20:11:11.252Z
-updated: 2024-10-27T00:45:44.112Z
+date: 2025-02-28T01:42:19.388Z
+updated: 2025-03-05T00:03:08.339Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1cc9313b9fe369f5223c991811b69d7e7918004bf32f94b881a0e706f76af5b4.jpg
@@ -158,3 +158,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1cc9313b9fe369f5223c991811b69d7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210497771-9781925471533-elevate-your-energy/"><u>Elevate Your Energy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210496543-9781000547290-embedding-spirituality-and-religion-in-social-work-practice/"><u>Embedding Spirituality and Religion in Social Work Practice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210496979-9780807007198-meditations-of-the-heart/"><u>Meditations of the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210496461-9781774816851-sacred-mysteries-among-the-mayas-and-the-quiches-11-500-years-ago/"><u>Sacred Mysteries among the Mayas and the Quiches - 11, 500 Years Ago | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210497892-9781732298149-the-ancient-way-of-the-solar-warrior-atlantean-temple-wisdom/"><u>The Ancient Way of the Solar Warrior, Atlantean Temple Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210496981-9781632174390-the-just-girl-project-book-of-astrology/"><u>The Just Girl Project Book of Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210496475-9781662459047-water-walking/"><u>Water Walking | Free Book</u></a></li>
+</ul></div>
+

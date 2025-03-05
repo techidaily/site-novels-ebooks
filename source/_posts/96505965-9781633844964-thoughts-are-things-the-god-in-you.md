@@ -1,7 +1,7 @@
 ---
 title: Thoughts Are Things & The God In You | Free Book
-date: 2025-02-09T21:44:02.334Z
-updated: 2025-02-15T20:49:38.827Z
+date: 2025-02-28T17:06:39.164Z
+updated: 2025-03-05T00:35:38.949Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de54f05927d883c71ef54b8cf8b56607b1fb.jpg
@@ -137,14 +137,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ce6c03b8001cfb4bfb753c6c17e4de5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210003931-9781761034916-create-a-servitor/"><u>Create a Servitor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003876-9780486846798-living-love/"><u>Living Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003801-9781761034848-lucid-dreaming/"><u>Lucid Dreaming | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003804-9781761034794-numerology/"><u>Numerology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003802-9781761034763-psychic-development/"><u>Psychic Development | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210864932-9781088166567-greater-exploits-4-el-difunto-profeta-tb-joshua-de-la-scoan-el-difunto-profeta-tb-joshua-de-la-scoan-2nd-ed/"><u>Greater Exploits - 4 - El difunto profeta TB Joshua de la SCOAN: El difunto profeta TB Joshua de la SCOAN (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210864929-9781088167748-greater-exploits-4-o-falecido-profeta-tb-joshua-de-scoan-3rd-ed/"><u>Greater Exploits - 4 O Falecido Profeta TB Joshua de SCOAN - (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210865174-9781088143032-greater-exploits-7-perfect-testimonies-and-images-of-the-son-for-greater-exploits-in-the-secret/"><u>Greater Exploits - 7 Perfect Testimonies and Images of The Son for Greater Exploits in the Secret | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210864718-9781088145159-it-will-never-happen-to-me/"><u>It Will Never Happen to Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210863051-9781646046416-psychic-shield-the-personal-handbook-of-psychic-protection/"><u>Psychic Shield: The Personal Handbook of Psychic Protection | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210864466-9781947544451-the-gorgons-guide-to-magical-resistance/"><u>The Gorgon's Guide to Magical Resistance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210862644-9781507221884-the-modern-witchcraft-book-of-moon-magick/"><u>The Modern Witchcraft Book of Moon Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210865164-9781960466075-koloda-taro-lenorman-znachenie/"><u>Колода Таро Ленорман Значение | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "The Art and Science of Personal Magnetism: The Secret of Mental Fascination | Free Book"
-date: 2025-02-12T17:06:19.610Z
-updated: 2025-02-15T17:44:11.537Z
+date: 2025-03-03T00:36:57.857Z
+updated: 2025-03-04T23:02:04.573Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52977932bab8b5bb52e35bf1419ff2f8f64.jpg
@@ -160,15 +160,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9fc04040341e700a380a1bcfe5c1b52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210257917-9780578885735-canceled/"><u>Canceled | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210259787-9780834843592-diving-in-the-inner-ocean/"><u>Diving in the Inner Ocean | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210257913-9781638778110-inspirations/"><u>Inspirations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210258133-9786077132615-la-oracion-en-la-psicoterapia/"><u>La oración en la psicoterapia | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210258399-9781529341980-lessons-from-a-bedside/"><u>Lessons from a Bedside | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210258131-9786077132714-travesia-entre-el-amor-y-la-muerte/"><u>Travesía entre el amor y la muerte | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145358-9781787399662-a-mindfulness-guide-for-survival/"><u>A Mindfulness Guide for Survival | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145586-9781638787884-astrology-for-witches/"><u>Astrology for Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145343-9781801290418-ayurveda-detox/"><u>Ayurveda Detox | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145211-9780349438795-black-magic/"><u>Black Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145573-9781638787877-candle-magic-journal-and-handbook/"><u>Candle Magic Journal and Handbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145478-9781638786955-crystal-zodiac-for-beginners/"><u>Crystal Zodiac for Beginners | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145213-9781801292733-heaven-sent/"><u>Heaven Sent | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145287-9781800692947-the-little-book-of-auras/"><u>The Little Book of Auras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145281-9781800692923-the-little-book-of-palmistry/"><u>The Little Book of Palmistry | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Existence Is Not Just Matter | Free Book
-date: 2025-02-14T23:26:47.130Z
-updated: 2025-02-16T00:17:09.959Z
+date: 2025-03-03T21:42:00.989Z
+updated: 2025-03-04T18:08:56.152Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936a1f2313c0c9535a6109f0fcb8418e6d9f.jpg
@@ -164,15 +164,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d752544c889c373f871f94349dc6936
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210252601-9781682131831-an-army-in-heaven/"><u>An Army in Heaven | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210252959-9781101993064-becoming-aware/"><u>Becoming Aware | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210253203-9781087954615-finding-your-superpowers-in-the-place-you-left-them/"><u>Finding Your Superpowers in the Place you Left Them | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210253212-9780578840130-holy-bleep-that-was-not-a-coincidence/"><u>Holy BLEEP! That Was Not a Coincidence | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210253168-9781733807913-persephones-pearls/"><u>Persephone's Pearls | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210252807-9781611534023-who-cares-what-the-numbers-say/"><u>Who Cares What the Numbers Say | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141803-9781644117491-celtic-tree-alphabets-2nd-ed/"><u>Celtic Tree Alphabets (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141802-9781644117439-encounters-with-mermaids-2nd-ed/"><u>Encounters with Mermaids (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141805-9781644117996-psychedelics-and-the-coming-singularity/"><u>Psychedelics and the Coming Singularity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141753-9781591435211-rediscovering-turtle-island/"><u>Rediscovering Turtle Island | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141752--the-geoengineered-transhuman-2nd-ed/"><u>The Geoengineered Transhuman (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140891-9781801520898-the-homes-of-the-soul/"><u>The Homes of the Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141751-9781591434917-the-realized-light-of-the-twelve-dimensions/"><u>The Realized Light of the Twelve Dimensions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141754-9781591435259-the-secret-life-of-mother-mary/"><u>The Secret Life of Mother Mary | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211141750-9781591434894-the-ufo-paradox/"><u>The UFO Paradox | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

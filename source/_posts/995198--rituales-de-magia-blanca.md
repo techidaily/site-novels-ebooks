@@ -1,7 +1,7 @@
 ---
 title: Rituales de magia blanca | Free Book
-date: 2025-02-11T21:41:19.928Z
-updated: 2025-02-15T17:17:23.849Z
+date: 2025-02-28T21:09:20.542Z
+updated: 2025-03-05T00:42:51.473Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172202ffdc1fb050e9e19fc0128c242ded04.jpg
@@ -136,13 +136,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/4d836f56bab8e7827b5b47fa07f0172
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209919313-9780762470471-calming-magic/"><u>Calming Magic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209919326-9780762498734-dreams/"><u>Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209918056-9781612437781-live-laugh-lagom/"><u>Live Laugh Lagom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209919166-9781633411951-queering-your-craft/"><u>Queering Your Craft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210797597-9788411482950-arcana-mundi/"><u>Arcana Mundi | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210796592-9780008603632-black-women-always-conversations-on-life-culture-and-creativity/"><u>Black Women Always: Conversations on life, culture and creativity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210798895-9781954641259-quiet-voice-awesome-power/"><u>Quiet Voice, Awesome Power | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210798986-9781953450357-relation-of-the-mineral-salts-of-the-body-to-the-signs-of-the-zodiac/"><u>Relation of the Mineral Salts of the Body to the Signs of the Zodiac | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210798957-9798886442168-the-spiritual-self-assessment-interview/"><u>The Spiritual Self Assessment Interview | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210798960-9798886447132-when-life-throws-you-lemons/"><u>When Life Throws you Lemons | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

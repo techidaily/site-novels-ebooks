@@ -1,7 +1,7 @@
 ---
 title: "Don't Forget to Breathe: 5-Minute Mindfulness for Busy Women - Beat Stress and Find Calm Anytime, Anywhere! | Free Book"
-date: 2024-10-24T23:38:53.300Z
-updated: 2024-10-26T18:33:57.659Z
+date: 2025-02-26T19:11:39.189Z
+updated: 2025-03-04T16:59:39.145Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9dce3579765e347252d4348f2293293bfe6f2e668b6ed74873e9493470082b12.jpg
@@ -151,3 +151,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9dce3579765e347252d4348f2293293
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210659509-9798985627138-inspired-meditations-book-ii/"><u>Inspired Meditations Book II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659510-9798985627152-inspired-meditations-book-iii/"><u>Inspired Meditations Book III | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659821-9781685702731-know-your-future/"><u>Know Your Future | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210660657-9798986782058-numerology-for-brilliance-2nd-ed/"><u>Numerology for Brilliance (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659796-9781952692482-the-mindfulness-bell-thich-nhat-hanh-memorial-issue-89-2022/"><u>The Mindfulness Bell: Thich Nhat Hanh Memorial Issue 89, 2022 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210659820-9781638740889-thoughts-from-a-mothers-love/"><u>Thoughts from a Mother's Love | Free Book</u></a></li>
+</ul></div>
+

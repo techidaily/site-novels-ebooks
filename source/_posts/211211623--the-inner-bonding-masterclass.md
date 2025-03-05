@@ -1,7 +1,7 @@
 ---
 title: The Inner Bonding Masterclass | Free Book
-date: 2024-10-24T17:41:58.903Z
-updated: 2024-10-27T00:35:42.026Z
+date: 2025-03-02T18:03:06.192Z
+updated: 2025-03-04T22:25:47.563Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2993be7ea84301f8e878756fd49da8499d3debe403d9057e2c7988e8eff90fae.jpg
@@ -150,3 +150,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2993be7ea84301f8e878756fd49da84
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210500801-9781644115381-being-nature-4th-ed/"><u>Being Nature (4th ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500798-9781644114919-how-psychedelics-can-help-save-the-world/"><u>How Psychedelics Can Help Save the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500797-9781644114629-the-light-of-hermes-trismegistus/"><u>The Light of Hermes Trismegistus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500800-9781644115329-the-story-of-gaia/"><u>The Story of Gaia | Free Book</u></a></li>
+</ul></div>
+

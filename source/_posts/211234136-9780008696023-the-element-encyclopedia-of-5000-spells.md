@@ -1,7 +1,7 @@
 ---
 title: The Element Encyclopedia of 5000 Spells | Free Book
-date: 2024-10-23T03:07:33.517Z
-updated: 2024-10-27T04:25:06.825Z
+date: 2025-02-28T02:09:14.067Z
+updated: 2025-03-04T20:02:26.636Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/34e15d590bdd2dde473fc99fd19f9501404400181177cbb97d611fd40c200748.jpg
@@ -200,3 +200,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/34e15d590bdd2dde473fc99fd19f950
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210410935-9781644115305-activate-your-super-human-potential/"><u>Activate Your Super-Human Potential | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410930-9781644114575-embodying-the-mystery/"><u>Embodying the Mystery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410931-9781644114643-lightbringers-of-the-north/"><u>Lightbringers of the North | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410936-9781644115060-microdosing-with-amanita-muscaria/"><u>Microdosing with Amanita Muscaria | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410929-9781644114315-sacred-geometry-of-the-starcut-diagram-2nd-ed/"><u>Sacred Geometry of the Starcut Diagram (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410932-9781644114759-the-kabbalah-of-light/"><u>The Kabbalah of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410933-9781644114780-witch-wisdom-for-magical-aging/"><u>Witch Wisdom for Magical Aging | Free Book</u></a></li>
+</ul></div>
+

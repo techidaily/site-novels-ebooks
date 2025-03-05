@@ -1,7 +1,7 @@
 ---
 title: The Bible of the Pure Soul and Mind | Free Book
-date: 2024-10-26T05:44:18.811Z
-updated: 2024-10-26T19:13:41.065Z
+date: 2025-03-01T23:25:01.513Z
+updated: 2025-03-04T19:07:59.049Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50760a1e2e8688379b19efddaa79e54f0cf56d1bc5cb77828f4444716c71d5b6.jpg
@@ -182,3 +182,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50760a1e2e8688379b19efddaa79e54
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210739695-9798886850567-activating-the-holy-spirit/"><u>Activating the Holy Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210740356-9781398827899-secrets-to-manifesting/"><u>Secrets to Manifesting | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210739707-9798886540833-the-handbook-of-you/"><u>The Handbook of YOU | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210740352-9781782120438-the-labyrinth-of-time/"><u>The Labyrinth of Time | Free Book</u></a></li>
+</ul></div>
+

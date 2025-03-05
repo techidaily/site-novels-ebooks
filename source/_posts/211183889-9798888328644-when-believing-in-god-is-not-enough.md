@@ -1,7 +1,7 @@
 ---
 title: When Believing in God Is Not Enough | Free Book
-date: 2024-10-23T19:47:07.823Z
-updated: 2024-10-26T23:33:08.831Z
+date: 2025-02-28T21:17:51.140Z
+updated: 2025-03-04T20:56:29.954Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/adce2686e0999c88c5340b2202eabaf75f72a6fa7c2a3433b31cd9f1135b93a6.jpg
@@ -145,3 +145,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/adce2686e0999c88c5340b2202eabaf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210582010-9781493045839-haunted-jersey-shore-2nd-ed/"><u>Haunted Jersey Shore (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210582108-9781957895369-laughing-your-life-healthy/"><u>Laughing Your Life Healthy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210582219-9781647016968-persecution-or-popularity-as-an-individual/"><u>Persecution or Popularity as an Individual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210584252-9780998602394-spend-some-love/"><u>Spend Some Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210582135-9781957943527-the-me-i-couldnt-see/"><u>The Me I Couldn't See | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210583127-9781507220160-the-modern-witchcraft-book-of-astrology/"><u>The Modern Witchcraft Book of Astrology | Free Book</u></a></li>
+</ul></div>
+

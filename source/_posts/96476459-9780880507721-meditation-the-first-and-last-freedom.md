@@ -1,7 +1,7 @@
 ---
 title: "Meditation: The First and Last Freedom | Free Book"
-date: 2025-02-09T20:16:55.077Z
-updated: 2025-02-16T02:00:56.878Z
+date: 2025-02-28T17:34:15.935Z
+updated: 2025-03-04T19:07:36.747Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70d718f54a0317ee16324de11a1dbb32a0c.jpg
@@ -175,14 +175,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/7a4e9cf74ddac4d559d0cbc7c85bb70
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210222917-9781910531518-alchemy/"><u>Alchemy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210221776-9780757324178-say-yes-to-your-life/"><u>Say Yes to Your Life | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210222921-9781801520072-the-dark-side-of-dharma/"><u>The Dark Side of Dharma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210222918-9781910531525-where-in-the-world/"><u>Where in the World | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210222447-9781473596641-you-are-powerful/"><u>You Are Powerful | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211106579-9781960952691-calebs-journey/"><u>Caleb's Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107191-9782385640149-la-voie-de-lascension/"><u>La voie de l'ascension | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211105365--manifest-your-true-essence/"><u>Manifest Your True Essence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211105952-9798888513477-satans-prison/"><u>Satan's Prison | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211106530-9781960861603-the-gift-of-depression/"><u>The Gift of Depression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211103908-9780875169507-time-for-hope/"><u>Time for Hope | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

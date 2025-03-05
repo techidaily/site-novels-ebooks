@@ -1,7 +1,7 @@
 ---
 title: "The Murdered Dead Speak: Book I | Free Book"
-date: 2024-10-22T17:24:19.591Z
-updated: 2024-10-26T16:55:08.665Z
+date: 2025-03-03T21:27:08.634Z
+updated: 2025-03-04T16:42:55.178Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c22428035d84dd1ccc89367458aa36db2a7a04c6429cb112877da69f3994045d.jpg
@@ -136,3 +136,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c22428035d84dd1ccc89367458aa36d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210685484-9781644116821-a-new-science-of-the-afterlife/"><u>A New Science of the Afterlife | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685438-9781591434993-angel-abundance/"><u>Angel Abundance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685434-9781591434603-communicating-with-plants/"><u>Communicating with Plants | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685436-9781591434771-ecosomatics/"><u>Ecosomatics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685483-9781644116012-runes-and-astrology-3rd-ed/"><u>Runes and Astrology (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685481-9781644112915-the-hermetic-marriage-of-art-and-alchemy/"><u>The Hermetic Marriage of Art and Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685435-9781591434245-the-mystery-of-doggerland/"><u>The Mystery of Doggerland | Free Book</u></a></li>
+</ul></div>
+

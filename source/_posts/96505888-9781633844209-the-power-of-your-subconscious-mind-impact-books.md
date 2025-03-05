@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Impact Books) | Free Book
-date: 2025-02-14T20:57:33.684Z
-updated: 2025-02-16T01:34:42.441Z
+date: 2025-02-27T02:11:26.728Z
+updated: 2025-03-04T17:44:46.950Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f89fb97561f703e5667e68f81dda24d211.jpg
@@ -149,17 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/3be5404ad062a188180cc104cae854f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210124224-9780593189702-dusk-night-dawn/"><u>Dusk, Night, Dawn | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210123885-9781789046397-everything-you-never-learned-about-sex/"><u>Everything You Never Learned About Sex | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210123670-9780993911446-medicine-buddhamedicine-mind/"><u>Medicine Buddha/Medicine Mind | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210123887-9781789044331-medicine-of-the-imagination-dwelling-in-possibility/"><u>Medicine of the Imagination: Dwelling in Possibility | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210123902-9781797200378-moon-bath/"><u>Moon Bath | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210123412-9780744043044-tarot/"><u>Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210124120-9781475857238-teach-like-a-human/"><u>Teach Like a Human | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210124291-9781784884116-the-art-of-stillness-in-a-noisy-world/"><u>The Art of Stillness in a Noisy World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932922-9781855843448-breathing-the-spirit/"><u>Breathing the Spirit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932917-9781855844780-christ-and-the-human-soul/"><u>Christ and the Human Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932933-9781855844667-concerning-the-affinity-of-the-living-and-the-dead/"><u>Concerning The Affinity of The Living And The Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932934-9781855843103-manifestations-of-karma/"><u>Manifestations of Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932932-9781855843578-nature-spirits/"><u>Nature Spirits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932920-9781855842915-on-epidemics/"><u>On Epidemics | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932928-9781855842922-on-fear/"><u>On Fear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932923-9781912992249-the-lucifer-deception/"><u>The Lucifer Deception | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

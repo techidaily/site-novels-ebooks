@@ -1,7 +1,7 @@
 ---
 title: The Little Encyclopedia of Mythical Horses | Free Book
-date: 2024-10-20T18:03:12.347Z
-updated: 2024-10-27T01:06:31.609Z
+date: 2025-03-02T20:55:31.577Z
+updated: 2025-03-04T22:28:13.111Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/aa4651ea83554aa4f9960458b1703ccd7466147feb95f6530a3dde9ab2838fe7.jpg
@@ -169,3 +169,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/aa4651ea83554aa4f9960458b1703cc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210547564-9781639039173-and-this-is-why-we-laugh/"><u>And This Is Why We Laugh | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210547565-9781685177423-from-the-pit-to-the-gate/"><u>From the Pit to the Gate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210547314-9781954759459-get-your-shit-together/"><u>Get Your Shit Together | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210546841-9781000598315-the-dreams-of-a-child/"><u>The Dreams of a Child | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210547090-9781662473944-truly-fly/"><u>Truly Fly | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210546606-9781685741150-ufo/"><u>UFO | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210547577-9781639611591-wisdom-for-millennials-and-others/"><u>Wisdom for Millennials and Others | Free Book</u></a></li>
+</ul></div>
+

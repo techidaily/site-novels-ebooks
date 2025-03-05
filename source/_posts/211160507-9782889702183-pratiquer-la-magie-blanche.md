@@ -1,7 +1,7 @@
 ---
 title: Pratiquer la magie blanche | Free Book
-date: 2024-10-20T05:14:16.966Z
-updated: 2024-10-26T16:37:42.747Z
+date: 2025-03-03T19:30:30.742Z
+updated: 2025-03-04T17:17:39.329Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5bc7178d4f8c4e21a8e4a1a726eb8ff49e423fb87875a1cc03b8ad79eb8a76d2.jpg
@@ -148,3 +148,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5bc7178d4f8c4e21a8e4a1a726eb8ff
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210711713-9781454922599-a-little-bit-of-chakras/"><u>A Little Bit of Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711730-9781454926900-a-little-bit-of-meditation/"><u>A Little Bit of Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711706-9781454922605-a-little-bit-of-symbols/"><u>A Little Bit of Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711702-9781454915423-a-little-bit-of-tarot/"><u>A Little Bit of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711727-9781454927167-a-little-bit-of-wicca/"><u>A Little Bit of Wicca | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711711-9781454916390-small-miracles-for-women/"><u>Small Miracles for Women | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711722-9781454926061-spirit-healing/"><u>Spirit Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711726-9781454926320-the-book-of-self-care/"><u>The Book of Self-Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711728-9781454926467-wild-magic/"><u>Wild Magic | Free Book</u></a></li>
+</ul></div>
+

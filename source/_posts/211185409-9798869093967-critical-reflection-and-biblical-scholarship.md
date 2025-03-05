@@ -1,7 +1,7 @@
 ---
 title: Critical Reflection and Biblical Scholarship | Free Book
-date: 2024-10-25T20:29:04.889Z
-updated: 2024-10-26T17:38:33.225Z
+date: 2025-02-28T22:38:47.916Z
+updated: 2025-03-05T00:27:26.587Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f39d442b9128ddbcfcc4374a272316a85838965c3db249018827849470bf687c.jpg
@@ -235,3 +235,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f39d442b9128ddbcfcc4374a272316a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210599053-9781631959301-be-it-until-you-become-it/"><u>Be It Until You Become It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210599397-9781647009212-cats-rule-the-earth-tarot/"><u>Cats Rule the Earth Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210599077-9781685262471-from-pieces-to-peace/"><u>From Pieces to Peace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210600680-9781401965068-in-the-world-but-not-of-it/"><u>In the World, But Not of It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210599137-9781780725710-just-one-thing/"><u>Just One Thing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210595953-9789388511414-soft-skills-personality-development-for-life-success/"><u>Soft Skills Personality Development for Life Success | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210601217-9781957895710-voices-from-nature-lessons-from-god/"><u>Voices From Nature, Lessons From God | Free Book</u></a></li>
+</ul></div>
+

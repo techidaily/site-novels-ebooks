@@ -1,7 +1,7 @@
 ---
 title: From India to the Planet Mars | Free Book
-date: 2024-10-23T01:03:16.651Z
-updated: 2024-10-27T05:04:17.377Z
+date: 2025-02-25T23:23:18.766Z
+updated: 2025-03-04T21:47:22.759Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9d00056b27920377b47f29f58f27f7673f6f41cef4d0efb5bbdb85290610f5a5.jpg
@@ -170,3 +170,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9d00056b27920377b47f29f58f27f76
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210559270-9781590792483-evolutions-purpose/"><u>Evolution's Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210558394-9780760373484-in-focus-dreams/"><u>In Focus Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210558880-9781638143994-live-until-you-die/"><u>Live Until You Die | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210557820-9798218001773-open-your-presence/"><u>Open Your Presence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210559238-9781590799628-sq21/"><u>SQ21 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210559269-9781590793992-what-is-reality/"><u>What is Reality? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210558020-9798885406222-whispers-of-poetry/"><u>Whispers of Poetry | Free Book</u></a></li>
+</ul></div>
+

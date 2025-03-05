@@ -1,7 +1,7 @@
 ---
 title: Watchfulness, Awareness, Alertness | Free Book
-date: 2025-02-12T16:19:27.997Z
-updated: 2025-02-15T16:12:45.000Z
+date: 2025-02-28T23:10:45.533Z
+updated: 2025-03-04T18:04:46.388Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c870602bba3fd8e0b15e7db26103a11581bd.jpg
@@ -164,14 +164,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/691dc52c3873e33395b9b2c28e51c87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210220939-9781736617212-bad-father-good-father/"><u>Bad Father Good Father | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210219828-9781460712764-in-plain-sight/"><u>In Plain Sight | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210220619-9780593418352-lighting-the-wick/"><u>Lighting the Wick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210219778-9789389253030-mahavir/"><u>Mahavir | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210220930-9781643344591-pequenas-puertas-para-inmenso-pensar-en-recordar/"><u>Pequeñas Puertas Para Inmenso Pensar En Recordar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099507-9781803413495-by-no-means-equal/"><u>By No Means Equal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099496-9781615195367-in-tune/"><u>In Tune | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099516-9781803412443-life-is-a-song-of-love/"><u>Life Is a Song of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099513-9781785359347-pagan-portals-rounding-the-wheel-of-the-year/"><u>Pagan Portals - Rounding the Wheel of the Year | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099512-9781803413105-the-10-principles-of-the-feminine/"><u>The 10 Principles of the Feminine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099474-9781615192571-the-foundations-of-mindfulness/"><u>The Foundations of Mindfulness | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

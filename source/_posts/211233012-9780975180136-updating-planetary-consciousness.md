@@ -1,7 +1,7 @@
 ---
 title: Updating Planetary Consciousness | Free Book
-date: 2024-10-24T19:05:55.078Z
-updated: 2024-10-27T01:08:34.247Z
+date: 2025-03-02T18:56:14.271Z
+updated: 2025-03-04T22:09:52.900Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/615e1ad552359b821e4de4a40e1b2902a995706bd2105e0b0abe953e3e97d469.jpg
@@ -166,3 +166,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/615e1ad552359b821e4de4a40e1b290
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210410924-9781644112892-hermetic-philosophy-and-creative-alchemy/"><u>Hermetic Philosophy and Creative Alchemy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410923-9781644112441-king-solomon-the-magus/"><u>King Solomon the Magus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410922-9781644112304-secret-history-of-the-wild-wild-west/"><u>Secret History of the Wild, Wild West | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210410926-9781644114551-the-hermetic-physician/"><u>The Hermetic Physician | Free Book</u></a></li>
+</ul></div>
+

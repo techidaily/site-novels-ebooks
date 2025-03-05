@@ -1,7 +1,7 @@
 ---
 title: The Sacred Art of Forgiveness | Free Book
-date: 2025-02-13T20:42:37.996Z
-updated: 2025-02-16T00:06:13.825Z
+date: 2025-02-26T20:36:52.053Z
+updated: 2025-03-04T16:55:40.335Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25962baa67acd7a750d9439b29b6f9ed9bf.jpg
@@ -160,13 +160,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/060f568f2cd68e445f4893b137f0c25
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210085752-9781000197181-a-multidisciplinary-approach-to-embodiment/"><u>A Multidisciplinary Approach to Embodiment | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210086699-9781982169862-life-lessons-from-a-homemade-sourdough-starter/"><u>Life Lessons from a Homemade Sourdough Starter | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210086426-9780593196816-the-healing-power-of-witchcraft/"><u>The Healing Power of Witchcraft | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210086454-9781401961459-unblocked/"><u>Unblocked | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909675-9784016249073-a-promise-40/"><u>A Promise @ 40 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909633-9781761039225-aceites-esenciales/"><u>Aceites Esenciales | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909579-9781088166727-brazen-altar-in-the-holy-ghost-school-lafamcall/"><u>BRAZEN ALTAR IN THE HOLY GHOST SCHOOL - LaFAMCALL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909700-9781952491580-can-i-be-honest/"><u>Can I Be Honest? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909705-9781088199855-impegnarsi-in-una-conversazione-intima-con-dio-dio-e-desiderato-di-coinvolgerti/"><u>Impegnarsi in una conversazione intima con Dio Dio è DESIDERATO di COINVOLGERTI | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909588-9781088178935-prayer-the-christians-airpower/"><u>Prayer - The Christian's Airpower | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909702-9781088199589-sengager-dans-une-conversation-intime-avec-dieu-dieu-est-desireux-de-vous-engager/"><u>S'engager dans une conversation intime avec Dieu Dieu est désireux de vous engager | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909704-9781088199725-sich-auf-ein-intimes-gesprach-mit-gott-einlassen-gott-ist-bestrebt-sie-zu-engagieren/"><u>Sich auf ein intimes Gespräch mit Gott einlassen Gott ist bestrebt, Sie zu engagieren | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

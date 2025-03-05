@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Rediscovered Books) | Free Book
-date: 2025-02-12T21:37:20.773Z
-updated: 2025-02-15T23:07:03.903Z
+date: 2025-03-03T23:57:14.835Z
+updated: 2025-03-05T01:45:34.017Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ade5b91b73d82f57195217177183175f0bf.jpg
@@ -149,13 +149,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/50b1a1ebc0c74140bb0dc46291a53ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210002074-9781609253295-a-magical-course-in-tarot/"><u>A Magical Course in Tarot | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002067-9781601637628-encyclopedia-of-haunted-places-revised-edition/"><u>Encyclopedia of Haunted Places, Revised Edition | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002068-9781609259389-hedgewitch-book-of-days/"><u>Hedgewitch Book of Days | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002064-9781609254025-saturn-in-transit/"><u>Saturn in Transit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859708-9781667454535-7-maneras-extraordinarias-de-doblegar-la-realidad/"><u>7 Maneras extraordinarias de doblegar la realidad | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859717-9781667452258-esposa-expatriada-vida-feliz/"><u>Esposa expatriada vida feliz | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859646-9781667452937-expat-wife-happy-life/"><u>Expat Wife, Happy Life! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859728-9781667455396-expat-wife-happy-life/"><u>Expat Wife, Happy Life! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859793-9781667452265-mein-gluckliches-leben-als-expat-frau/"><u>Mein Glückliches Leben als Expat-Frau | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859762-9781667453934-o-jogo-da-encarnacao/"><u>O Jogo Da Encarnação | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859673-9781667455570-h-megkan-phgainei-sto-zwologiko-khpo/"><u>Η Μέγκαν πηγαίνει στο ζωολογικό κήπο | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859734-9781667453590-khasha-ka-bharama/"><u>खुशी का भ्रम | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

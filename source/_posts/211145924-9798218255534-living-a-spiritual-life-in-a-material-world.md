@@ -1,7 +1,7 @@
 ---
 title: Living a Spiritual Life in a Material World | Free Book
-date: 2024-10-26T02:11:17.838Z
-updated: 2024-10-27T04:28:26.644Z
+date: 2025-02-26T21:24:40.625Z
+updated: 2025-03-04T22:12:40.507Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/16c987f8aa03cd06a13e1a3cb4de9b6799585aacad23064e18eda4e0bec97588.jpg
@@ -199,3 +199,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/16c987f8aa03cd06a13e1a3cb4de9b6
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210761846-9781604073324-falling-into-grace/"><u>Falling into Grace | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761847-9781591798866-how-to-read-the-akashic-records/"><u>How to Read the Akashic Records | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761854-9781604074642-the-guru-question/"><u>The Guru Question | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761849-9781591798804-true-meditation/"><u>True Meditation | Free Book</u></a></li>
+</ul></div>
+

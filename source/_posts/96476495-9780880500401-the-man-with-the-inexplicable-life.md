@@ -1,7 +1,7 @@
 ---
 title: The Man with the Inexplicable Life | Free Book
-date: 2025-02-10T00:58:01.523Z
-updated: 2025-02-16T02:46:22.534Z
+date: 2025-02-27T22:32:08.890Z
+updated: 2025-03-04T19:44:41.228Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090d7a673c820c62b2b8653378e4a7827ca4.jpg
@@ -170,16 +170,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d904006d395b982a4256c395dcac090
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210241607-9781398810495-10000-dreams-interpreted/"><u>10,000 Dreams Interpreted | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210242868-9780648873976-angels-of-truth-we-are/"><u>Angels of Truth We Are | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210241184-9781734431445-i-may-not-be-an-expert-but-i-do-know-this/"><u>I May Not Be An Expert, But I Do Know This... | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210241741-9780593329467-the-art-of-sacred-smoke/"><u>The Art of Sacred Smoke | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210240812-9789351940340-the-children-of-nature-the-life-and-legacy-of-ramana-maharshi/"><u>The Children of Nature: The Life and Legacy of Ramana Maharshi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210240987-9781736465219-the-evolution-revolution/"><u>The Evolution Revolution | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210242953-9781736398210-the-seeker-and-the-teacher-of-light/"><u>The Seeker and The Teacher of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124917-9798868921070-a-course-in-sorcery/"><u>A Course In Sorcery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124943-9798868913723-becoming-well-in-the-real-world/"><u>Becoming Well in the Real World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124832-9798889602972-conquering-mental-illness-a-practical-approach-for-children-and-adults-the-cause-and-solution/"><u>Conquering Mental Illness: A Practical Approach for Children and Adults: The Cause and Solution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124990-9798989005604-empowered-by-consciousness/"><u>Empowered by Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124916-9781732378865-listen/"><u>LISTEN | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211125139-9781645521938-my-magic-dreadlocks/"><u>My Magic Dreadlocks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124901-9789198209273-pilgrim-puzzle-of-symbols/"><u>PILGRIM; Puzzle of Symbols | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211125215-9781958481226-slaying-southwest-florida/"><u>Slaying Southwest Florida | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211126274-9781668017227-the-astrology-advantage/"><u>The Astrology Advantage | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

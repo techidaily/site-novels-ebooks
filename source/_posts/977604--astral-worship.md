@@ -1,7 +1,7 @@
 ---
 title: Astral Worship | Free Book
-date: 2025-02-09T02:50:19.627Z
-updated: 2025-02-15T22:35:42.217Z
+date: 2025-02-27T18:12:05.106Z
+updated: 2025-03-04T19:14:02.699Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d985d2e2b239244b7e51182f7efd2d6c692.jpg
@@ -130,15 +130,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/771ab9cb7ff7cc8fc51af74b369b0d9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209976631-9781912551965-101-inspirational-quotes/"><u>101 Inspirational Quotes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209975691-9781789043884-escaping-from-eden/"><u>Escaping from Eden | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209975751-9781439667842-haunted-flint/"><u>Haunted Flint | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209976918-9781783254019-self-care-for-tough-times/"><u>Self-care for Tough Times | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209975677-9781789043013-the-magdalene-lineage/"><u>The Magdalene Lineage | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209975675-9781789043440-the-power-of-past-life-regression/"><u>The Power of Past Life Regression | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845546-9798889269649-beautiful-women-a-view-from-the-heart/"><u>Beautiful Women: A View from the Heart | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845116-9780760385647-card-of-the-day-tarot/"><u>Card of the Day Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845561-9781088143278-manifesting-your-dream-life/"><u>MANIFESTING YOUR DREAM LIFE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845308-9798889269731-mindful-metamorphosis/"><u>Mindful Metamorphosis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845432-9798822915527-precious-gems/"><u>Precious Gems | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845544-9781684931842-the-healing-light/"><u>The Healing Light | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

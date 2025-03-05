@@ -1,7 +1,7 @@
 ---
 title: The Wheel of the Year Companion | Free Book
-date: 2024-10-20T03:48:32.924Z
-updated: 2024-10-26T16:01:54.550Z
+date: 2025-02-26T00:49:51.522Z
+updated: 2025-03-04T16:19:15.092Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/13a8a1c26625d65a79b855c1195b5579636890ff1de28a474fcfc82302fb4f59.jpg
@@ -172,3 +172,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/13a8a1c26625d65a79b855c1195b557
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210677068-9781398827790-green-witchcraft/"><u>Green Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210677070-9781398824799-magic-and-witchcraft/"><u>Magic and Witchcraft | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210677069-9781398827974-the-book-of-divination/"><u>The Book of Divination | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210677071-9781398827981-the-book-of-spells/"><u>The Book of Spells | Free Book</u></a></li>
+</ul></div>
+

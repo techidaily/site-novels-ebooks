@@ -1,7 +1,7 @@
 ---
 title: The Beauty of the Human Soul | Free Book
-date: 2025-02-08T19:09:14.002Z
-updated: 2025-02-16T00:27:11.919Z
+date: 2025-02-26T22:11:48.397Z
+updated: 2025-03-04T16:54:37.158Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7d8c8f6245ed5da4193cf4c1c2e5ccccde.jpg
@@ -183,15 +183,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/1ae8644a982ff7d120a1d0cdfa73ef7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210197152-9781631593390-5-minute-mindfulness-walking/"><u>5-Minute Mindfulness: Walking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197149-9781781318133-crystal-fix/"><u>Crystal Fix | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197108-9780760367001-life-unplugged/"><u>Life Unplugged | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197145-9780711253452-mindful-thoughts-at-home/"><u>Mindful Thoughts at Home | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197069-9781782407140-secrets-of-shiatsu/"><u>Secrets of Shiatsu | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210197066-9781631595370-the-ultimate-guide-to-chakras/"><u>The Ultimate Guide to Chakras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211015741-9781738035816-affirmations-du-matin-gloire-du-matin/"><u>Affirmations du matin Gloire du matin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211015787-9780645848748-decoding-the-dolphins-breath/"><u>DECODING THE DOLPHIN'S BREATH | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211015384-9781633413436-lessons-from-the-light/"><u>Lessons from the Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211015383-9781633413252-living-conjure/"><u>Living Conjure | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211015719-9781737375791-three-awakenings/"><u>Three Awakenings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211015382-9781633413405-throwing-bones-crystals-stones-and-curios/"><u>Throwing Bones, Crystals, Stones, and Curios | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211015380-9781633413399-upside-down-tarot/"><u>Upside Down Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211015864-9781616734091-what-your-birthday-reveals-about-you/"><u>What Your Birthday Reveals About You | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211015381-9781633413276-year-of-the-dark-goddess/"><u>Year of the Dark Goddess | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "A World Made New: A Channeled Text | Free Book"
-date: 2024-10-20T20:19:36.993Z
-updated: 2024-10-27T01:13:08.796Z
+date: 2025-03-03T01:14:24.269Z
+updated: 2025-03-04T22:46:47.617Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/dd6fe65ec5cc687a983d10ca7f3dc54e97eabcf27f5b7799872903aa21f680d1.jpg
@@ -164,3 +164,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/dd6fe65ec5cc687a983d10ca7f3dc54
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210656150-9789895377336-atlantis-rising/"><u>ATLANTIS RISING | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210656153-9798985826937-guardiana-de-la-sabiduria/"><u>Guardiana de la Sabiduría | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210656011-9781578598083-nightmares/"><u>Nightmares | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655965-9781454946489-shadow-work/"><u>Shadow Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655761-9781785357442-the-way-of-reiki-the-inner-teachings-of-mikao-usui/"><u>The Way of Reiki - The Inner Teachings of Mikao Usui | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210656115-9780578399461-transcending-form-ascend-to-the-stars/"><u>Transcending Form: Ascend to the Stars | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210656029-9781454941071-wicca-nature-magic/"><u>Wicca Nature Magic | Free Book</u></a></li>
+</ul></div>
+

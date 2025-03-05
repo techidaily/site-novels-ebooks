@@ -1,7 +1,7 @@
 ---
 title: Summary of Garrett Graff's UFO | Free Book
-date: 2024-10-22T23:34:22.000Z
-updated: 2024-10-26T20:15:27.052Z
+date: 2025-02-25T21:21:03.747Z
+updated: 2025-03-04T20:15:30.729Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bad88cf7abbfed051cfe3dd7c3d5cb3938dcd5f4e051929b3b2fb65c2fa0fe92.jpg
@@ -137,3 +137,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bad88cf7abbfed051cfe3dd7c3d5cb3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210431604-9780645281514-an-introduction-to-spirituality/"><u>An Introduction to Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210431603-9780646851525-find-your-way/"><u>Find Your Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210433110-9781786786081-myung-sung/"><u>Myung Sung | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210432855-9781684860081-satans-masterpiece-and-the-way-to-freedom/"><u>Satan's Masterpiece, And The Way To Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210432942-9780760371404-the-ultimate-guide-to-psychic-abilities/"><u>The Ultimate Guide to Psychic Abilities | Free Book</u></a></li>
+</ul></div>
+

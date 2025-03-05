@@ -1,7 +1,7 @@
 ---
 title: Candle Magic Journal and Handbook | Free Book
-date: 2024-10-20T22:38:37.175Z
-updated: 2024-10-27T01:55:02.642Z
+date: 2025-02-26T20:47:12.639Z
+updated: 2025-03-04T16:11:09.933Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49a833f7e61064163f175fb7633f9f1f87705202f8f4c7a8f5b85c712af3fa4a.jpg
@@ -150,3 +150,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49a833f7e61064163f175fb7633f9f1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210761538-9781622036530-art-of-attention/"><u>Art of Attention | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761545-9781649630599-how-to-be-loving-the-journal/"><u>How to Be Loving: The Journal | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761557-9781683640257-in-search-of-wisdom/"><u>In Search of Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761541-9781622039043-leopard-warrior/"><u>Leopard Warrior | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761544-9781622039142-redvelations/"><u>Redvelations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761553-9781683640509-the-book-of-beasties/"><u>The Book of Beasties | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761551-9781649630186-what-makes-us-human/"><u>What Makes Us Human | Free Book</u></a></li>
+</ul></div>
+

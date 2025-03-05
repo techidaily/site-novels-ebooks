@@ -1,7 +1,7 @@
 ---
 title: The Little Encyclopedia of Mermaids | Free Book
-date: 2024-10-22T05:41:37.205Z
-updated: 2024-10-26T21:40:46.720Z
+date: 2025-03-02T21:21:50.548Z
+updated: 2025-03-04T18:18:36.572Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/d6d8c2185b1635a051c6502a53758aecf8912a892b104af17cf6e194071444a4.jpg
@@ -161,3 +161,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/d6d8c2185b1635a051c6502a53758ae
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210367984-9781950253241-awakening-astrology/"><u>Awakening Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210368472-9781638448167-from-the-past-lifetime/"><u>From the Past Lifetime | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210368477-9781098095840-the-perception-of-trauma/"><u>The Perception of Trauma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210367985-9781633412705-witch-please/"><u>Witch, Please | Free Book</u></a></li>
+</ul></div>
+

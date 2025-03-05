@@ -1,7 +1,7 @@
 ---
 title: Releasing the Creative Spirit | Free Book
-date: 2025-02-09T02:43:11.089Z
-updated: 2025-02-16T01:20:28.802Z
+date: 2025-02-26T00:46:42.717Z
+updated: 2025-03-04T20:48:53.104Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180f215e5ab49f9cb5961589040d470ab5e7.jpg
@@ -182,17 +182,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b7c267c12b1435a7ab93d838ccd180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210070639-9780578643144-a-new-and-powerful-you/"><u>A New and Powerful You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210072780-9781581575545-a-season-with-the-witch-the-magic-and-mayhem-of-halloween-in-salem-massachusetts/"><u>A Season with the Witch: The Magic and Mayhem of Halloween in Salem, Massachusetts | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2100754-9780974021676-healing-the-heart-soul/"><u>Healing the Heart & Soul | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210073347-9781682682524-morning-altars-a-7-step-practice-to-nourish-your-spirit-through-nature-art-and-ritual/"><u>Morning Altars: A 7-Step Practice to Nourish Your Spirit through Nature, Art, and Ritual | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210070721-9781735309422-the-inner-journey/"><u>The Inner Journey | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210077510-9780999864654-through-the-storm/"><u>Through the Storm | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210070727-9780987630612-trust-the-universe-2nd-ed/"><u>Trust the Universe (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210070646-9781913479268-wellness-magick/"><u>Wellness Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904168-9781088203767-gana-las-batallas-de-la-vida-todos-los-dias-1243-plano/"><u>Gana las batallas de la vida todos los días 12.4.3 Plano | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904123-9781088161357-the-practical-school-of-the-holy-spirit-part-1-of-8-activate-your-spiritual-senses/"><u>The Practical School of the Holy Spirit - Part 1 of 8 - Activate Your Spiritual Senses | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904122-9781088161517-the-practical-school-of-the-holy-spirit-part-2-of-8-journal-gods-voice/"><u>The Practical School of the Holy Spirit - Part 2 of 8 - Journal God's Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210904121-9781088162088-the-practical-school-of-the-holy-spirit-part-4-of-8-activate-dreams-and-visions/"><u>The Practical School of the Holy Spirit - Part 4 of 8 - Activate Dreams and Visions | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

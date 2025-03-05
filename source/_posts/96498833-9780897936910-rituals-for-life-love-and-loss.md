@@ -1,7 +1,7 @@
 ---
 title: Rituals for Life, Love, and Loss | Free Book
-date: 2025-02-09T19:38:21.444Z
-updated: 2025-02-15T18:39:54.372Z
+date: 2025-03-03T20:00:01.066Z
+updated: 2025-03-04T16:42:12.202Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7ac0e75cba816d9bed1914107f52000d16.jpg
@@ -179,15 +179,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/94db9e34751b78facd20c79dc5840d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210144120-9781615649327-chakra-healing/"><u>Chakra Healing | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210143755-9781596500396-conversations-in-apocalyptic-times/"><u>Conversations in Apocalyptic Times | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210143869-9781087920603-inspired-by-k/"><u>Inspired By K | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210144195-9781777282912-the-false-healer/"><u>The False Healer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210143833-9781777339814-the-good-thing-about-mortar-shells/"><u>The Good Thing About Mortar Shells | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210143799-9780982685570-the-journey-from-ego-to-soul/"><u>The Journey from Ego to Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210942665-9781800652804-essential-astrology/"><u>Essential Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210942305-9780719831553-introduction-to-spiritual-ecology/"><u>Introduction to Spiritual Ecology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210942147-9781911110705-my-mind-my-master/"><u>My Mind My Master | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210942366-9780719840845-reiki/"><u>Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210942144-9781913340575-spiritual-life-a-journey-to-freedom/"><u>Spiritual Life, a Journey to Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210942263-9781785008399-the-alexander-technique/"><u>The Alexander Technique | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

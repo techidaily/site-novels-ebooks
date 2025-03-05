@@ -1,7 +1,7 @@
 ---
 title: "Shamanism: The Book of Journeys | Free Book"
-date: 2025-02-14T01:19:02.880Z
-updated: 2025-02-16T02:21:41.820Z
+date: 2025-03-01T00:36:42.255Z
+updated: 2025-03-05T01:35:59.269Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753e50554b1e161ed3ed46475c2b066f5851.jpg
@@ -141,18 +141,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b18b405cb4d4361451a369f577a7753
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209983796-9781644111444-crystal-protection-from-5g-and-emf-pollution-2nd-ed/"><u>Crystal Protection from 5G and EMF Pollution (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209983963-9781771862219-free-of-incurable-cancer/"><u>Free of 'incurable' Cancer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209987732-9781538754139-life-with-the-afterlife/"><u>Life with the Afterlife | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209984282-9781734770612-mind-body-home-3rd-ed/"><u>Mind Body Home (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209988338-9781641604499-the-power-of-hex/"><u>The Power of Hex | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209984139-9781646540419-things-to-think-about/"><u>Things To Think About | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209984323-9781761033209-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209987490-9781734574111-vision-quest/"><u>Vision Quest | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209983783-9781644110812-when-i-was-someone-else/"><u>When I Was Someone Else | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210847675-9781801520713-a-commentary-on-the-cosmic-doctrine/"><u>A Commentary on 'The Cosmic Doctrine' | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210849530-9798886444643-here-for-a-good-time-not-a-long-time-dont-ignore-the-signs-the-tucker-westfall-story/"><u>Here For a Good Time, Not a Long Time Don't Ignore the Signs The Tucker Westfall Story | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210849548-9798886445626-prayers-of-the-righteous/"><u>Prayers of the Righteous | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210849978-9781446350034-tales-of-haunted-places/"><u>Tales of Haunted Places | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

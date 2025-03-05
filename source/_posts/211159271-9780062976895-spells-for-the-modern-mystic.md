@@ -1,7 +1,7 @@
 ---
 title: Spells for the Modern Mystic | Free Book
-date: 2024-10-19T20:15:24.834Z
-updated: 2024-10-27T00:47:03.492Z
+date: 2025-03-01T18:49:08.494Z
+updated: 2025-03-05T01:08:11.428Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/af0ad1fc3570ff91c7e15508058393f814de7ef07c25d823a845a54acc506a7b.jpg
@@ -168,3 +168,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/af0ad1fc3570ff91c7e15508058393f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210705156-9780760379998-angel-numbers/"><u>Angel Numbers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705161-9780760379974-candle-magic/"><u>Candle Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705147-9780760380581-celtic-mysticism/"><u>Celtic Mysticism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705153-9780760376393-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705711-9791029914324-life-and-destiny/"><u>Life and Destiny | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705157-9780760377697-moon-meditations/"><u>Moon Meditations | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705150-9780760379981-pendulum-magic/"><u>Pendulum Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705162-9780760378106-the-witchs-complete-guide-to-crystals/"><u>The Witch's Complete Guide to Crystals | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210705691-9781955312370-through-the-storm/"><u>Through The Storm | Free Book</u></a></li>
+</ul></div>
+

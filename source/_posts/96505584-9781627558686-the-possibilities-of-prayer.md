@@ -1,7 +1,7 @@
 ---
 title: The Possibilities of Prayer | Free Book
-date: 2025-02-13T20:39:32.336Z
-updated: 2025-02-16T00:08:59.442Z
+date: 2025-03-01T00:33:15.257Z
+updated: 2025-03-04T18:25:11.576Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a91f112407fbe692b6f17b2370ea5709f0.jpg
@@ -140,15 +140,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/85f3026b0397474bcc4dd2241b3895a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210106033-9780646820637-perceptions-perspectives/"><u>Perceptions & Perspectives | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210106058-9781087907307-poop-random-words-musings-and-insight/"><u>Poop! Random Words, Musings and Insight | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210106068-9781087907413-sleep-paralysis/"><u>Sleep Paralysis | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210106278-9781913140267-the-chi-book/"><u>The Chi Book | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210106369-9781913479312-the-female-archangels/"><u>The Female Archangels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210106420-9781907105173-the-mentor-within/"><u>The Mentor Within | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932754-9781912230648-if-the-organs-could-speak/"><u>If the Organs Could Speak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932751-9781912992454-mastering-life/"><u>Mastering Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932749-9781912230518-spiritual-translocation/"><u>Spiritual Translocation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932744-9781855842687-the-philosophy-of-freedom/"><u>The Philosophy of Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932752-9781912230525-the-twilight-and-resurrection-of-humanity/"><u>The Twilight and Resurrection of Humanity | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932743-9781855844988-the-world-of-bees/"><u>The World of Bees | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

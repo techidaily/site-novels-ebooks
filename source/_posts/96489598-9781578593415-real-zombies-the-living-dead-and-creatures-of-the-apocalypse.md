@@ -1,7 +1,7 @@
 ---
 title: Real Zombies, the Living Dead, and Creatures of the Apocalypse | Free Book
-date: 2025-02-11T01:40:38.816Z
-updated: 2025-02-15T18:18:54.054Z
+date: 2025-03-03T20:14:30.252Z
+updated: 2025-03-04T19:15:50.837Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f21074693b0a017feb0e2f2238989b3513.jpg
@@ -238,15 +238,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b594f04c3f1c6c9887c6d2ac65ea9f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210174967-9781646546282-archangel-michael-breathes/"><u>Archangel Michael Breathes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210172900-9781736180112-awaken-the-wizard-within-1001-3rd-ed/"><u>Awaken the Wizard Within 1001 (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210173565-9780310124757-fit-for-purpose/"><u>Fit for Purpose | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210173120-9781735056319-liquid-love/"><u>Liquid Love | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210172896-9780985653521-the-healing-network/"><u>The Healing Network | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210173481-9781777370022-unfold-me/"><u>Unfold Me | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970067-9781088235669-entre-el-amor-y-la-guerra/"><u>Entre el Amor y la Guerra | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970069-9781088232491-exiliados-por-amor/"><u>Exiliados por Amor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970064-9781088231791-hay-flores-sobre-las-piedras/"><u>Hay Flores sobre las Piedras | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970070-9781088232835-todas-las-flores-que-yo-gane/"><u>Todas las Flores que yo gané | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

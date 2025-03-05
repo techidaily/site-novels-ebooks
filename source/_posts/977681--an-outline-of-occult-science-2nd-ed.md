@@ -1,7 +1,7 @@
 ---
 title: An Outline of Occult Science (2nd ed.) | Free Book
-date: 2025-02-09T18:16:39.123Z
-updated: 2025-02-15T20:30:52.206Z
+date: 2025-03-03T02:05:46.005Z
+updated: 2025-03-04T21:06:01.312Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673da7b4392ad14ce18efc33a70fab90f3ea5.jpg
@@ -131,17 +131,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/977f9b22ead42a49e687880d0bf673d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209982845-9781071533086-meditacion-como-vencer-el-miedo-la-ira-y-la-depresion/"><u>Meditación: Cómo Vencer El Miedo, La Ira Y La Depresión | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209982833-9781071536711-meditazione-guida-per-principianti-passo-dopo-passo-alla-consapevolezza-e-ad-una-connessione/"><u>Meditazione: Guida Per Principianti Passo Dopo Passo Alla Consapevolezza E Ad Una Connessione | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209982697-9781071536728-meditazione-semplici-tecniche-di-rilassamento/"><u>Meditazione: Semplici Tecniche Di Rilassamento | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209982826-9781071526743-megan-e-a-competicao-culinaria/"><u>Megan e a Competição Culinária | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209982768-9781071536667-megan-en-de-burgemeesteres/"><u>Megan en de Burgemeesteres | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209982868-9781071534502-megan-en-de-vermiste-kat/"><u>Megan en de Vermiste Kat | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209982681-9781071533291-megan-va-a-cabalgar/"><u>Megan Va A Cabalgar | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209981294-9781401958084-the-hidden-power-of-emotions/"><u>The Hidden Power of Emotions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210846442-9781953821621-a-mystic-guide-to-spiritual-evolution/"><u>A Mystic Guide to Spiritual Evolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845903-9781761039010-ayurveda/"><u>Ayurveda | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210846182-9781956744934-beyond-what-we-can-see/"><u>Beyond What We Can See | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845836-9798889269755-discover-use-your-greatest-superpower/"><u>Discover & Use Your Greatest Superpower | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210846224-9798889269748-fragile-thoughts/"><u>Fragile Thoughts | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

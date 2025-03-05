@@ -1,7 +1,7 @@
 ---
 title: My Encounter With God As A Commercial Truck Driver | Free Book
-date: 2024-10-20T20:55:43.225Z
-updated: 2024-10-27T01:31:47.057Z
+date: 2025-03-03T00:42:56.923Z
+updated: 2025-03-05T00:08:47.395Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/be42563d3d17315993e0c4afc7e3344ae33e592d6077214605cda2e083d20f09.jpg
@@ -171,3 +171,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/be42563d3d17315993e0c4afc7e3344
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210713619-9781739165321-a-gentle-goodbye-with-cinnamon-the-rabbit/"><u>A Gentle Goodbye with Cinnamon the Rabbit | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713583-9798987218525-how-to-poof-your-best-life/"><u>How to Poof Your Best Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713572-9781647842741-life-existence-and-metamorphosis-sublimation/"><u>Life Existence and Metamorphosis Sublimation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713689-9798885409599-stress-less-and-soar-more/"><u>Stress Less and Soar More | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713578-9781647842727-the-absolute-freedom-of-saudi-being-and-nothingness/"><u>The Absolute Freedom of Saudi Being and Nothingness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713688-9798885408721-the-birthing-of-a-prophet/"><u>The Birthing of a Prophet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713577-9781647842758-unveiling-the-true-veil-of-life/"><u>Unveiling the True Veil of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713586-9780983938767-when-spirits-speak/"><u>When Spirits Speak | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210713023-9789948807377-mshaaar-hyaa/"><u>مشاعر حياة | Free Book</u></a></li>
+</ul></div>
+

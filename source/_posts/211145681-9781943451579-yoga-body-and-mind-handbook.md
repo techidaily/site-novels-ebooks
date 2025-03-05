@@ -1,7 +1,7 @@
 ---
 title: Yoga Body and Mind Handbook | Free Book
-date: 2024-10-23T21:48:22.693Z
-updated: 2024-10-27T05:20:29.629Z
+date: 2025-02-28T23:55:30.897Z
+updated: 2025-03-04T21:40:46.484Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f1a14cd177939bf660caa9f701eb50c1ee3690c99f0c1c9d66c0e74ac8dc0e1c.jpg
@@ -158,3 +158,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f1a14cd177939bf660caa9f701eb50c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210761801-9781591798743-distant-healing/"><u>Distant Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761791-9781604073294-meditation-for-the-love-of-it/"><u>Meditation for the Love of It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761797-9781591798316-shamans-of-the-world/"><u>Shamans of the World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761795-9781591798590-the-mystery-of-2012/"><u>The Mystery of 2012 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761790-9781649631381-the-three-conditions/"><u>The Three Conditions | Free Book</u></a></li>
+</ul></div>
+

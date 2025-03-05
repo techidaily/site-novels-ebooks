@@ -1,7 +1,7 @@
 ---
 title: Entheogens, Myth, and Human Consciousness | Free Book
-date: 2025-02-10T18:44:01.796Z
-updated: 2025-02-15T22:59:28.037Z
+date: 2025-02-28T23:20:36.098Z
+updated: 2025-03-05T02:08:19.954Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe719fd7519fcb5e68ea2cc10fc063c2aabd.jpg
@@ -246,15 +246,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bc4fa24f1276000f32eb0afdd989fe7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210063596-9780593196748-chakras-self-care/"><u>Chakras & Self-Care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210063644-9781071551950-hypno-skripte/"><u>Hypno-Skripte | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210063477-9781623175733-missing-witches/"><u>Missing Witches | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210062867-9781789044256-the-divine-ceo/"><u>The Divine CEO | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210063466-9781788175708-the-real-toltec-prophecies/"><u>The Real Toltec Prophecies | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210063177-9780857304322-ufos-aliens-and-the-battle-for-truth/"><u>UFOs, Aliens and the Battle for Truth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210882842-9781088161166-break-free-daily-revival-prayers-may-towards-national-transformation/"><u>Break-free - Daily Revival Prayers - MAY - Towards NATIONAL TRANSFORMATION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210882719-9783988313881-declutter-your-mind/"><u>DECLUTTER YOUR MIND | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210882811-9781088186596-source-and-interpretation-of-dreams-with-fasting-prayer-for-fulfilment-of-good-dreams/"><u>Source And Interpretation Of Dreams With Fasting & Prayer For Fulfilment Of Good Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210882828-9781737357742-the-world-is-louder-than-we-think/"><u>The World is Louder than we think | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

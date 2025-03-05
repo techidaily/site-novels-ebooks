@@ -1,7 +1,7 @@
 ---
 title: The Science of Mind (Impact Books) | Free Book
-date: 2025-02-08T16:17:40.880Z
-updated: 2025-02-15T21:42:02.813Z
+date: 2025-03-01T17:36:13.307Z
+updated: 2025-03-04T22:28:27.290Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3548b9518357bb8fb084d864afb7863fc6.jpg
@@ -137,14 +137,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b03b18ed164e6c13dbfb776f0804eb3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210002044-9781601637611-cosmic-conversations/"><u>Cosmic Conversations | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002036-9781601634474-demon-street-usa/"><u>Demon Street, USA | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002042-9781601635303-monster-files/"><u>Monster Files | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002043-9781601634481-strange-electromagnetic-dimensions/"><u>Strange Electromagnetic Dimensions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002049-9781609256401-touching-the-light-day-by-day/"><u>Touching the Light, Day by Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859603-9781667453941-das-beste-verdienst-du/"><u>Das Beste Verdienst Du | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859375-9780645249262-decoding-dis-ease/"><u>DECODING DIS-EASE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859620-9781667454436-el-juego-de-la-encarnacion/"><u>El Juego De La Encarnación | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859588-9781667456478-le-changement-de-paradigme/"><u>Le changement de paradigme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859192-9783988313614-nlp-manipulation/"><u>NLP MANIPULATION | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859194-9798987668214-stand-in-your-brilliance/"><u>Stand in Your Brilliance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859524-9781841503868-the-divine-springtime/"><u>The Divine Springtime | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859448-9781801520799-the-tarot/"><u>The Tarot | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

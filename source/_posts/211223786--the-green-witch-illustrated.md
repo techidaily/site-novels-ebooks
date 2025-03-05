@@ -1,7 +1,7 @@
 ---
 title: The Green Witch Illustrated | Free Book
-date: 2024-10-19T18:26:21.630Z
-updated: 2024-10-26T22:50:24.580Z
+date: 2025-03-02T01:35:18.828Z
+updated: 2025-03-04T22:39:03.471Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f66225e53efd817ed36be113d06f5c7a9d133045e62e45d33505177a2bf2dea1.jpg
@@ -144,3 +144,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f66225e53efd817ed36be113d06f5c7
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210450304-9781667420349-megan-e-a-radio-um-show-na-estrada/"><u>Megan e a Rádio Um Show na Estrada | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450231-9781667419602-mindfulnes-paso-a-paso-guia-basica-para-principiantes/"><u>Mindfulnes Paso a paso: guía básica para principiantes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450248-9781667421247-yoga-para-iniciantes-yoga-magica-as-melhores-posturas-suaves/"><u>Yoga para iniciantes: Yoga mágica- as melhores posturas suaves | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450218-9781667421216-yoga-para-principiantes-yoga-magico-las-mejores-posturas-de-yoga-suave/"><u>Yoga para principiantes: Yoga Mágico - Las mejores posturas de yoga suave | Free Book</u></a></li>
+</ul></div>
+

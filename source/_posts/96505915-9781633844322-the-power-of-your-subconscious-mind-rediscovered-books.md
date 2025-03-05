@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind (Rediscovered Books) | Free Book
-date: 2025-02-09T00:39:33.599Z
-updated: 2025-02-15T19:56:15.558Z
+date: 2025-02-25T23:08:18.028Z
+updated: 2025-03-04T16:26:09.777Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584a9bd51d805bef4e36aefcfbb9894d30ca.jpg
@@ -153,15 +153,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/234baa96c84e39c7ca4ada66e91c584
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210002081-9781609252168-about-peace/"><u>About Peace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002084-9781609252731-beyond-bizarre/"><u>Beyond Bizarre | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002088-9781609252212-nirvana-in-a-nutshell/"><u>Nirvana in a Nutshell | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002086-9781633411067-phantom-messages/"><u>Phantom Messages | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002076-9781609252984-the-weiser-field-guide-to-the-paranormal/"><u>The Weiser Field Guide to the Paranormal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210002079-9781609259037-under-the-influence/"><u>Under the Influence | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210860397-9781998082117-awakening-your-true-self/"><u>Awakening Your True Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210860699-9798987777534-my-journey-to-spiritual-restoration/"><u>My Journey to Spiritual Restoration | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210860131-9781623178482-red-tarot/"><u>Red Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210860008-9781991016515-shadow-worlds/"><u>Shadow Worlds | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210859802-9781667454757-simboli-di-guarigione-degli-antichi-slavi-glagolitico-arte-terapia/"><u>Simboli di Guarigione degli Antichi Slavi. Glagolitico. Arte Terapia | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

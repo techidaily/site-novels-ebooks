@@ -1,7 +1,7 @@
 ---
 title: "Feng Shui: The Living Earth Manual | Free Book"
-date: 2025-02-10T17:46:19.592Z
-updated: 2025-02-15T19:16:14.386Z
+date: 2025-03-02T18:46:40.791Z
+updated: 2025-03-04T20:24:09.768Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba7221811a6190b1adfba80c343f88ccffedd4.jpg
@@ -148,15 +148,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8ac3c528176f4ac06d16fa325eba722
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209952090-9781071519851-black-belt/"><u>Black Belt | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209951993-9781071513620-meditacao-guia-definitivo-para-uma-vida-de-paz-livre-de-ansiedade-e-cheia-de-felicidades/"><u>Meditação: Guia Definitivo Para Uma Vida De Paz, Livre De Ansiedade E Cheia De Felicidades | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209952025-9781547590445-meditacao-seja-feliz-na-vida-e-livre-se-do-estresse/"><u>Meditação: Seja Feliz Na Vida E Livre-se Do Estresse | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209952010-9781071513460-meditacion-guia-de-meditacion-con-meditacion-guiada-mindfulness-para-principiantes/"><u>Meditación: Guía de meditación con meditación guiada (Mindfulness para principiantes) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209951998-9781071513507-meditacion-tecnicas-de-meditacion-guiadas-para-aumentar-la-productividad-y-la-felicidad/"><u>Meditación: Técnicas De Meditación Guiadas Para Aumentar La Productividad Y La Felicidad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209952067-9781071515549-meditacion-tecnicas-de-mindfulness-para-una-meditacion-poderosa/"><u>Meditación: Técnicas De Mindfulness Para Una Meditación Poderosa | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210817279-9781529903683-let-healing-happen/"><u>Let Healing Happen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210817107-9781250325754-nostradamus-speaks/"><u>Nostradamus Speaks | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210817047-9781623179397-returning-home-to-our-bodies/"><u>Returning Home to Our Bodies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210817094-9781250288141-the-broke-witch/"><u>The Broke Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210817133-9781250902740-the-magic-of-tarot/"><u>The Magic of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210817164-9781250910455-the-way-home/"><u>The Way Home | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

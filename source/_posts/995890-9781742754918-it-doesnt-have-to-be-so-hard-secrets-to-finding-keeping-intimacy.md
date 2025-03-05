@@ -1,7 +1,7 @@
 ---
 title: "It Doesn’t Have To Be So Hard: Secrets to Finding & Keeping Intimacy | Free Book"
-date: 2025-02-13T22:53:37.313Z
-updated: 2025-02-15T19:28:07.963Z
+date: 2025-02-28T17:20:54.209Z
+updated: 2025-03-04T23:09:22.419Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf38aa50894206c896a379a707437b9efc67.jpg
@@ -176,15 +176,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/845256c687e16ac3244b2e6a6667cf3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209927246-9781646630042-conversations-with-grace/"><u>Conversations with Grace | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209929474-9781951775131-imps-imps-and-more-whimps/"><u>Imps, Imps, and More Whimps! | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209928850-9781925921878-live-fearlessly/"><u>Live Fearlessly | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209925553-9781784281441-mindfulness-for-happiness/"><u>Mindfulness for Happiness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209928853-9784375653245-the-alchemists-handbook/"><u>The Alchemists Handbook | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209927105-9781788173797-the-seven-types-of-spirit-guide/"><u>The Seven Types of Spirit Guide | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210803181-9798822912250-admit-it-youre-god/"><u>Admit It, You're God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210803164-9798885057493-my-journey/"><u>My Journey | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210802992-9788794430043-the-attack-on-the-ferris-wheel/"><u>THE ATTACK ON THE FERRIS WHEEL | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210803027-9781957917290-the-heart-of-fear/"><u>The Heart of Fear | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

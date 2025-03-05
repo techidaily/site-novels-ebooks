@@ -1,7 +1,7 @@
 ---
 title: Knowledge of the Higher Worlds and Its Attainment | Free Book
-date: 2025-02-12T01:22:15.970Z
-updated: 2025-02-15T21:02:37.655Z
+date: 2025-02-27T16:16:57.560Z
+updated: 2025-03-05T02:02:53.950Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b53de0aded5271db5eb585c3636ab369229.jpg
@@ -138,18 +138,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/945ce44d5fc31bc2d4ffdb57b7c89b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210053468-9780998741420-ama-deus-curando-com-a-energia-sagrado-do-universo/"><u>Ama-Deus Curando com a Energia Sagrado do Universo | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210054979-9789389716184-creative-mind-and-success/"><u>Creative Mind and Success | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210054425-9781647533557-in-communication-with-the-deceased/"><u>In Communication With The Deceased | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210055068-9781999216092-magic-in-the-bible/"><u>Magic In The Bible | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210053376-9780648748014-she-walks/"><u>She Walks | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210053671-9780982676967-stark-raving-zen/"><u>Stark Raving Zen | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210054992-9781946774828-the-emerald-tablet-of-hermes-the-kybalion/"><u>The Emerald Tablet of Hermes & The Kybalion | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210054982-9781838024963-the-ultimate-guide-to-the-power-of-chakras/"><u>The Ultimate Guide to the Power of Chakras | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210054955-9781999425531-un-manual-ce-5/"><u>Un Manual CE-5 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877274-9781612832821-impossible-realities/"><u>Impossible Realities | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877269-9781612833156-out-of-body-experiences/"><u>Out of Body Experiences | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877266-9781612833231-the-future-is-yours/"><u>The Future Is Yours | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877270-9781612833088-ufos-ets-and-alien-abductions/"><u>UFOs, ETs, and Alien Abductions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877271-9781612833293-unconventional-flying-objects/"><u>Unconventional Flying Objects | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

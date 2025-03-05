@@ -1,7 +1,7 @@
 ---
 title: The Spirit of the Appalachian Trail | Free Book
-date: 2025-02-12T23:02:01.591Z
-updated: 2025-02-15T21:19:56.227Z
+date: 2025-03-01T19:51:53.960Z
+updated: 2025-03-04T22:19:38.473Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961323003d7af80c3336a9be0dfd98597884.jpg
@@ -249,14 +249,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f21e1371e8c619ea2ae53a55a596961
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210000449-9781783752034-midwinter-heat/"><u>Midwinter Heat | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210000110-9781783254033-sacred-geometry/"><u>Sacred Geometry | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210000111-9781856754484-the-little-book-of-dreams/"><u>The Little Book of Dreams | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210000108-9781856754491-the-little-book-of-serenity/"><u>The Little Book of Serenity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209999771-9781761034022-the-reiki-manual/"><u>The Reiki Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851618-9781088144749-a-mediums-voice/"><u>A Medium's Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851569-9781739279158-children-of-god/"><u>Children of God | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851550-9781088115930-clueless-wise/"><u>Clueless & Wise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851650-9783988313416-mindfulness-for-beginners/"><u>MINDFULNESS FOR BEGINNERS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851424-9781800079786-spirituality-for-every-day/"><u>Spirituality for Every Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851423-9781800077850-the-little-book-of-zen/"><u>The Little Book of Zen | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

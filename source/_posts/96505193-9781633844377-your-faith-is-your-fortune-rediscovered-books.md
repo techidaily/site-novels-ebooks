@@ -1,7 +1,7 @@
 ---
 title: Your Faith is Your Fortune (Rediscovered Books) | Free Book
-date: 2025-02-13T00:55:20.685Z
-updated: 2025-02-15T22:34:44.443Z
+date: 2025-03-01T17:10:12.485Z
+updated: 2025-03-04T19:04:14.090Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c7810240095085bf2d53b68a6016e2a983238.jpg
@@ -144,16 +144,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5c072cdf8c127efe604dcafa3c1c781
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210101849-9781989838730-bedtime-stories-for-adults-who-want-to-sleep-17-stories-and-beginners-guided-meditations-for-deep-sleep-overcoming-insomnia-anxiety-stress-relief-developing-min/"><u>Bedtime Stories For Adults Who Want To Sleep 17 Stories And Beginners Guided Meditations For Deep Sleep, Overcoming Insomnia & Anxiety, Stress Relief & Developing Mindfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210101856-9781989838778-bedtime-stories-for-adults-with-insomnia-2-in-1-deep-sleep-stories-meditations-to-help-you-quiet-the-mind-fall-asleep-fast-overcome-nighttime-anxiety-stress-rel/"><u>Bedtime Stories For Adults With Insomnia (2 in 1) Deep Sleep Stories & Meditations To Help You Quiet The Mind, Fall Asleep Fast & Overcome Nighttime Anxiety & Stress-Relief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210101854-9781989838761-bedtime-stories-for-stressed-out-adults-relaxing-sleep-stories-guided-mindfulness-meditations-self-hypnosis-for-deep-sleep-overcoming-anxiety-insomnia-stress-re/"><u>Bedtime Stories for Stressed Out Adults Relaxing Sleep Stories, Guided Mindfulness Meditations & Self-Hypnosis For Deep Sleep, Overcoming Anxiety, Insomnia & Stress Relief | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210101892-9781797205434-cosmic-care/"><u>Cosmic Care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210101848-9781989838723-guided-mindfulness-meditations-for-stressed-out-adults-beginners-meditation-bedtime-stories-hypnosis-for-self-healing-deep-sleep-anxiety-relaxation-insomnia-ove/"><u>Guided Mindfulness Meditations for Stressed Out Adults Beginners Meditation, Bedtime Stories & Hypnosis For Self-Healing, Deep Sleep, Anxiety, Relaxation, Insomnia & Overthinking | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210101852-9781989838747-quit-smoking-hypnosis-guided-self-hypnosis-meditations-to-stop-smoking-addiction-smoking-cessation-including-positive-affirmations-visualizations-relaxation-tec/"><u>Quit Smoking Hypnosis Guided Self-Hypnosis & Meditations To Stop Smoking Addiction & Smoking Cessation Including Positive Affirmations, Visualizations & Relaxation Techniques | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210101851-9781989838754-rapid-weight-loss-hypnosis-program-for-women-beginners-21-day-hypnosis-affirmations-for-fat-burning-calorie-blast-mindfulness-emotional-eating-cravings-hypnotic/"><u>Rapid Weight Loss Hypnosis Program For Women Beginners 21 Day Hypnosis & Affirmations For Fat Burning, Calorie Blast, Mindfulness, Emotional Eating & Cravings (Hypnotic Gastric Band) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929387-9781908596123-defy-your-age-and-regain-your-youth/"><u>Defy Your Age and Regain Your Youth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929580-9781839758348-jesus-100/"><u>Jesus 100 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929512-9781839751813-spirits-in-the-classroom-a-true-story-of-a-teachers-adventures-from-beyond/"><u>Spirits In The Classroom - A True Story Of A Teacher's Adventures From Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929575-9781781480267-stress-reprogrammed/"><u>Stress Reprogrammed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929599-9781839758140-testament-to-a-new-dawn/"><u>Testament to a New Dawn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929396-9781908447234-the-brilliant-virtual-world-of-our-dreams/"><u>The Brilliant Virtual World of Our Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929277-9781781484951-training-your-mind-to-realize-its-potential/"><u>Training Your Mind To Realize Its Potential | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Ancient Egyptian Holidays | Free Book
-date: 2024-10-24T05:24:18.388Z
-updated: 2024-10-27T03:26:18.602Z
+date: 2025-03-02T22:46:21.319Z
+updated: 2025-03-05T02:06:32.751Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b7b72a84fed64f30b2e483f7f633e427db774a509bcb56aab74a7914e01a32d6.jpg
@@ -174,3 +174,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b7b72a84fed64f30b2e483f7f633e42
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210591795-9798985236712-its-a-tango-not-a-war/"><u>It's a Tango, Not a War | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210590884-9780834844681-living-kindness/"><u>Living Kindness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210592377-9798985892680-never-forgotten/"><u>Never Forgotten | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210590918-9781786787378-the-aleister-crowley-manual/"><u>The Aleister Crowley Manual | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210591818-9798985991673-when-silence-is-misunderstood/"><u>When Silence is Misunderstood | Free Book</u></a></li>
+</ul></div>
+

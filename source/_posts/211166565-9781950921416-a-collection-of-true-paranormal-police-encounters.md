@@ -1,7 +1,7 @@
 ---
 title: A Collection of True Paranormal Police Encounters | Free Book
-date: 2024-10-19T18:03:52.927Z
-updated: 2024-10-27T00:17:17.264Z
+date: 2025-02-25T17:52:35.586Z
+updated: 2025-03-04T22:05:36.965Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/733a59ff7eaa063399bd9e2838433eeeab2374fd775b193c10306bb3034f2b96.jpg
@@ -166,3 +166,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/733a59ff7eaa063399bd9e2838433ee
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210685494-9781644117941-sage-huntress-lover-queen/"><u>Sage, Huntress, Lover, Queen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685508-9781646045211-spell-jars-for-the-modern-witch/"><u>Spell Jars for the Modern Witch | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685501-9781646045082-the-big-book-of-cryptid-trivia/"><u>The Big Book of Cryptid Trivia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685498-9781644118429-the-female-archangels-2nd-ed/"><u>The Female Archangels (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685747-9781982194321-will-to-wild/"><u>Will to Wild | Free Book</u></a></li>
+</ul></div>
+

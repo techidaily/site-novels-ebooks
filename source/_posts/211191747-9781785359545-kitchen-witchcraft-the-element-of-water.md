@@ -1,7 +1,7 @@
 ---
 title: "Kitchen Witchcraft: The Element of Water | Free Book"
-date: 2024-10-19T16:59:17.787Z
-updated: 2024-10-27T05:21:53.777Z
+date: 2025-02-25T17:33:27.398Z
+updated: 2025-03-04T19:04:41.228Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ecc91363126a962678277e7289a1d8d2c2c0c2963f41c7b3cad9a9beb29c8057.jpg
@@ -147,3 +147,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ecc91363126a962678277e7289a1d8d
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210528006-9781644114803-aleister-crowley-in-paris/"><u>Aleister Crowley in Paris | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528008-9781644115596-american-metaphysical-religion/"><u>American Metaphysical Religion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528009-9781644115282-ars-notoria-the-notory-art-of-solomon/"><u>Ars Notoria: The Notory Art of Solomon | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528003-9781644113431-how-to-become-a-modern-magus/"><u>How to Become a Modern Magus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528007-9781644115152-initiation-into-dream-mysteries/"><u>Initiation into Dream Mysteries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528004-9781644114483-mysteries-of-the-far-north/"><u>Mysteries of the Far North | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210528005-9781644114193-occult-russia/"><u>Occult Russia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210527994-9781591434641-quantum-spirituality/"><u>Quantum Spirituality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210527790-9789948825449-naaysh-aal-kyd-alaml/"><u>نعيش على قيد الأمل | Free Book</u></a></li>
+</ul></div>
+

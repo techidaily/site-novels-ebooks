@@ -1,7 +1,7 @@
 ---
 title: The Uncommon Book of Prayer | Free Book
-date: 2024-10-20T00:03:22.911Z
-updated: 2024-10-27T00:56:07.635Z
+date: 2025-02-28T16:38:13.389Z
+updated: 2025-03-05T01:30:13.270Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c41eb587ebf402e6d0e53025b9b19949163661fd903851c102e5804e925d7f5.jpg
@@ -164,3 +164,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c41eb587ebf402e6d0e53025b9b199
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210429237-9780593332290-let-your-light-shine/"><u>Let Your Light Shine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210429009-9780958723053-pathways-to-higher-consciousness/"><u>Pathways to Higher Consciousness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210429199-9780762478750-potions/"><u>Potions | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210429239-9780593420713-the-way-of-the-goddess/"><u>The Way of the Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210429008-9781913816445-ways-of-the-soul/"><u>Ways of the Soul | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Ghosts and Legends of Lafayette and Louisville | Free Book
-date: 2024-10-21T17:58:29.276Z
-updated: 2024-10-26T20:11:40.110Z
+date: 2025-03-01T18:59:29.776Z
+updated: 2025-03-04T23:02:43.315Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bd2ed831b5358e57838340a4070bf5c473a9e4f58c3457a9899835a349c1a707.jpg
@@ -137,3 +137,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bd2ed831b5358e57838340a4070bf5c
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210619955-9781722527570-free-your-magnificent-mind/"><u>Free Your Magnificent Mind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210619957-9781722527259-it-works-deluxe-edition/"><u>It Works Deluxe Edition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210619956-9781722527587-modern-occultism/"><u>Modern Occultism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210619960-9781722527563-seven-games-of-life/"><u>Seven Games of Life | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Encounters with Mermaids (2nd ed.) | Free Book
-date: 2024-10-21T22:45:14.137Z
-updated: 2024-10-26T20:35:34.967Z
+date: 2025-03-02T17:30:43.547Z
+updated: 2025-03-04T23:05:53.188Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9ba811b419707f4221676e5993f8baf4dbf79af89eafacef613fad7c736b6fcc.jpg
@@ -190,3 +190,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9ba811b419707f4221676e5993f8baf
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210769675-9781644117477-cats/"><u>Cats | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210769680-9781644118146-karma-and-reincarnation-in-the-animal-kingdom-2nd-ed/"><u>Karma and Reincarnation in the Animal Kingdom (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210769672-9781644116227-maps-of-consciousness-3rd-ed/"><u>Maps of Consciousness (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210769681-9781644118160-seven-heavens/"><u>Seven Heavens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210769673-9781644116845-the-first-alchemists/"><u>The First Alchemists | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210769674-9781644117194-the-persistence-of-the-soul-2nd-ed/"><u>The Persistence of the Soul (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210769658-9781591434979-veneration-rites-of-curanderismo/"><u>Veneration Rites of Curanderismo | Free Book</u></a></li>
+</ul></div>
+

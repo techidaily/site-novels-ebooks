@@ -1,7 +1,7 @@
 ---
 title: The Complete Prophecies of Nostradamus | Free Book
-date: 2025-02-13T22:48:31.422Z
-updated: 2025-02-15T19:47:29.155Z
+date: 2025-03-01T01:59:23.223Z
+updated: 2025-03-04T21:46:19.679Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2b76dc772c3108c75ac53f739309598ae7.jpg
@@ -141,16 +141,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/862f8455daef9dfa35428914b8c10e2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210102941-9781071558072-guide-de-guerison-et-de-formation-de-lempathe/"><u>Guide de Guérison et de Formation de L’empathe | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102987-9781071555552-le-jardin-de-megan/"><u>Le Jardin de Megan | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210103018-9781071554821-megan-e-il-ciclista/"><u>Megan e il ciclista | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102919-9781071554289-megan-va-a-navegar-en-yate/"><u>Megan va a navegar en Yate | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210103035-9781071558904-megans-tuin/"><u>Megan's Tuin | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210103152-9781071555194-megans-skolresa/"><u>Megans skolresa | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210103084--voices-from-beyond/"><u>Voices from Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930296-9781841815664-how-to-manifest-anything/"><u>How to Manifest Anything | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930172-9780717179152-michael-murphys-book-of-dreams/"><u>Michael Murphy's Book of Dreams | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930329-9780717151776-the-courage-to-be-happy/"><u>The Courage to Be Happy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930166-9780717181230-the-source/"><u>The Source | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

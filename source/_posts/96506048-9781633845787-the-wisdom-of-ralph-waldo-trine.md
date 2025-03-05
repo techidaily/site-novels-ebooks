@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Ralph Waldo Trine | Free Book
-date: 2025-02-10T01:43:12.352Z
-updated: 2025-02-16T02:17:21.025Z
+date: 2025-03-03T17:07:37.941Z
+updated: 2025-03-04T18:25:27.822Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399143e33e364df922e51683bcdc0dfe214d.jpg
@@ -146,13 +146,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6164d3c010f54dc4f54ec21fd900399
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210023869-9781787755215-clouds-over-qingcheng-mountain/"><u>Clouds Over Qingcheng Mountain | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210024818-9781912409068-for-humanity/"><u>For Humanity | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210024188-9781950719419-girl-youre-not-crazy-youre-dealing-with-a-narcissist/"><u>Girl, You're Not Crazy. You're Dealing With a Narcissist | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210023874-9781789043662-shine-on/"><u>Shine On | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877168-9781609250225-serpent-of-light/"><u>Serpent of Light | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877166-9781609252366-spirit-allies/"><u>Spirit Allies | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877178-9781609254278-the-book-of-black-magic/"><u>The Book of Black Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877171-9781609252915-the-demon-lover/"><u>The Demon Lover | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877176-9781609254018-the-history-of-magic/"><u>The History of Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877175-9781609253936-the-luminaries/"><u>The Luminaries | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877169-9781609253592-the-secrets-of-doctor-taverner/"><u>The Secrets of Doctor Taverner | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877164-9781609252359-twenty-five-doors-to-meditation/"><u>Twenty-Five Doors to Meditation | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877167-9781609252267-vedic-astrology/"><u>Vedic Astrology | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

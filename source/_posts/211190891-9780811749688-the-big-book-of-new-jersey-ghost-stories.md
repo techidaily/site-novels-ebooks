@@ -1,7 +1,7 @@
 ---
 title: The Big Book of New Jersey Ghost Stories | Free Book
-date: 2024-10-25T20:23:13.116Z
-updated: 2024-10-26T20:49:16.208Z
+date: 2025-02-28T22:03:32.805Z
+updated: 2025-03-05T00:07:37.426Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f3c24698b2bd0322d96329d2c8161f3209836f5d6afd668a727a53875a2d95aa.jpg
@@ -145,3 +145,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f3c24698b2bd0322d96329d2c8161f3
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210630007-9781642504187-a-mothers-courage-to-awaken/"><u>A Mother's Courage to Awaken | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210629980-9781609252595-teens-with-the-courage-to-give/"><u>Teens with the Courage to Give | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210629817-9781786787538-the-beauty-of-life/"><u>The Beauty of Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210630387-9781608688012-the-holy-wild-grimoire/"><u>The Holy Wild Grimoire | Free Book</u></a></li>
+</ul></div>
+

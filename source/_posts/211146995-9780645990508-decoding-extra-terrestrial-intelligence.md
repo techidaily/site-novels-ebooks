@@ -1,7 +1,7 @@
 ---
 title: DECODING EXTRA-TERRESTRIAL INTELLIGENCE | Free Book
-date: 2024-10-23T19:14:21.127Z
-updated: 2024-10-27T04:46:11.361Z
+date: 2025-03-03T23:48:54.240Z
+updated: 2025-03-04T17:56:57.933Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b6fc84e58d8d8f3e6e0fd3856be758448fd5130a74ee7c94222d17b1e0eb5b0f.jpg
@@ -169,3 +169,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b6fc84e58d8d8f3e6e0fd3856be7584
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210762192-9781787830783-all-you-need-is-less/"><u>All You Need is Less | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762205-9781786858856-how-to-relax/"><u>How to Relax | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762191-9781787830578-let-go/"><u>Let Go | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762197-9781787830486-live-your-best-life/"><u>Live Your Best Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762176-9781787831834-pause/"><u>Pause | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762201-9781786858887-slow/"><u>Slow | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210762181-9781787831773-the-little-book-of-tarot/"><u>The Little Book of Tarot | Free Book</u></a></li>
+</ul></div>
+

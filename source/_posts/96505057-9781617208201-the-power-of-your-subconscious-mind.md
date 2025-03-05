@@ -1,7 +1,7 @@
 ---
 title: The Power of Your Subconscious Mind | Free Book
-date: 2025-02-09T18:38:52.076Z
-updated: 2025-02-15T23:39:24.584Z
+date: 2025-03-01T21:43:33.796Z
+updated: 2025-03-04T22:02:31.423Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c8be1e273e8703fd7300e4323b7b56a480.jpg
@@ -149,17 +149,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9a8259f9871e355bf5101fbb9b5fd8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210090032-9781952982064-absolutely-perfect/"><u>Absolutely Perfect | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210090029-9780578714110-beyond-mind-the-milela-theory-chetana-yoga-the-next-step-in-human-evolution-2nd-ed/"><u>BEYOND MIND--THE MILELA THEORY, CHETANA YOGA-The next step in Human Evolution (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210091631-9781000249002-chemistry-of-aromatherapeutic-oils-3rd-ed/"><u>Chemistry of Aromatherapeutic Oils (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210091551-9780857304216-hauntology/"><u>Hauntology | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210091755-9781614237372-massachusetts-book-of-the-dead/"><u>Massachusetts Book of the Dead | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210091288-9781528767002-the-sea-earth-globe-and-its-monstrous-hypothetical-motions-or-modern-theoretical-astronomy/"><u>The Sea-Earth Globe and its Monstrous Hypothetical Motions; or Modern Theoretical Astronomy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210091059-9781515445449-the-secret-teachings-of-all-ages/"><u>The Secret Teachings of All Ages | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210091430-9781515445456-the-secret-teachings-of-all-ages/"><u>The Secret Teachings of All Ages | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210919654-9780719826917-an-abc-of-witchcraft-past-and-present/"><u>An ABC of Witchcraft Past and Present | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210920216-9780719826887-lamp-of-the-goddess/"><u>Lamp of the Goddess | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210919760-9780719826924-natural-magic/"><u>Natural Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210920214-9780719826894-spellcraft-for-hedge-witches/"><u>Spellcraft for Hedge Witches | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210920330-9780719826870-the-hedge-witchs-way/"><u>The Hedge Witch's Way | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210920242-9780719826955-witchcraft-for-tomorrow/"><u>Witchcraft for Tomorrow | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

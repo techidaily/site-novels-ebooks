@@ -1,7 +1,7 @@
 ---
 title: The Law and Other Essays on Manifestation (Rediscovered Books) | Free Book
-date: 2025-02-11T20:31:49.546Z
-updated: 2025-02-15T21:38:34.545Z
+date: 2025-02-26T01:18:45.914Z
+updated: 2025-03-04T21:10:55.902Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef941459e07334c1765fb9cde146a5cdcd19.jpg
@@ -148,16 +148,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/23100b8d303457e203c7f9e180c1ef9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210100213-9781789044379-divine-consciousness/"><u>Divine Consciousness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210099844-9786078756261-el-libro-que-nadie-debe-leer/"><u>El Libro que nadie debe leer | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210100742-9781646540815-incarcerated-walker/"><u>Incarcerated Walker | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210099835-9786078756193-las-enfermedades-comienzan-y-terminan-en-tu-mente/"><u>Las Enfermedades comienzan y terminan en tu mente | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210100621-9781641378581-mirrors-windows/"><u>Mirrors & Windows | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210099904-9780429672293-sensing-spirits/"><u>Sensing Spirits | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210100335-9781952982101-the-prophet/"><u>The Prophet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926302-9781903353622-charts-are-like-passports/"><u>Charts are Like Passports | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926308-9781903353448-dialogues/"><u>Dialogues | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926307-9781903353646-essential-skills-for-the-counseling-astrologer/"><u>Essential Skills for the Counseling Astrologer | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926304-9781903353455-horoscope-snapshots/"><u>Horoscope Snapshots | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926303-9781903353721-the-astrology-of-love-sex-and-attraction/"><u>The Astrology of Love, Sex and Attraction | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926309-9781903353363-the-family-legacy/"><u>The Family Legacy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926306-9781903353264-the-twelve-houses/"><u>The Twelve Houses | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

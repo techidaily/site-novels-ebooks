@@ -1,7 +1,7 @@
 ---
 title: Alien Mysteries, Conspiracies and Cover-Ups | Free Book
-date: 2025-02-13T22:49:50.093Z
-updated: 2025-02-15T18:36:24.364Z
+date: 2025-02-27T18:28:43.459Z
+updated: 2025-03-04T21:18:10.441Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b13c6ad96644eaf4941fb18af2578bcac4.jpg
@@ -192,13 +192,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b3f58c4f8796e9d1b7e65b50102e94b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210128582-9781401962951-african-goddess-initiation/"><u>African Goddess Initiation | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210127817-9781735539355-breathing-with-orisha/"><u>Breathing With Orisha | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210128301-9780691221991-doctor-illuminatus/"><u>Doctor Illuminatus | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210129000-9781420970319-transcendental-magic/"><u>Transcendental Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932983-9781912230853-are-there-people-without-a-self/"><u>Are There People Without a Self? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932978-9781855843486-living-with-the-dead/"><u>Living with the Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932989-9781912992348-swan-wings/"><u>Swan Wings | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932990-9781855844636-the-lively-interchange-between-the-living-and-the-dead/"><u>The Lively Interchange Between The Living and The Dead | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932977-9781912230501-the-michael-prophecy-and-the-years-2012-2033/"><u>The Michael Prophecy and the Years 2012-2033 | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932981-9781855843318-the-work-of-the-angel-in-our-astral-body/"><u>The Work of the Angel in Our Astral Body | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932982-9781912230860-travels-on-the-northern-parth-of-initiation/"><u>Travels on the Northern Parth of Initiation | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

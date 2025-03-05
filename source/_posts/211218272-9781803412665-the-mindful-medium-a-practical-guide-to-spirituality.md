@@ -1,7 +1,7 @@
 ---
 title: "The Mindful Medium: A Practical Guide to Spirituality | Free Book"
-date: 2024-10-21T21:11:37.643Z
-updated: 2024-10-26T19:05:21.746Z
+date: 2025-02-28T18:47:51.840Z
+updated: 2025-03-05T02:09:26.930Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/0c64307accbd1ad9b345df777e4ef4a06d70ed24b28ecceaf42736e24276ffd3.jpg
@@ -167,3 +167,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/0c64307accbd1ad9b345df777e4ef4a
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210508228-9781582708713-a-year-with-anthony-de-mello/"><u>A Year with Anthony De Mello | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508606-9789390030071-ancient-science-of-vastu/"><u>Ancient Science of Vastu | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210507687-9781476641997-body-dysmorphic-disorder-mine-and-yours/"><u>Body Dysmorphic Disorder, Mine and Yours | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508066-9781945026850-the-other-goddess/"><u>The Other Goddess | Free Book</u></a></li>
+</ul></div>
+

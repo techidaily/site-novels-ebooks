@@ -1,7 +1,7 @@
 ---
 title: The Big Book of New York Ghost Stories | Free Book
-date: 2024-10-20T02:00:42.921Z
-updated: 2024-10-26T16:01:07.768Z
+date: 2025-03-01T23:02:29.641Z
+updated: 2025-03-04T21:48:07.928Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/f0d12b21aa9243ed134fe6b29add4c17075e2bef3e124c9b95e1571e80e0f022.jpg
@@ -149,3 +149,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/f0d12b21aa9243ed134fe6b29add4c1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210530965-9780593236161-a-map-to-your-soul/"><u>A Map to Your Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210530959-9781612834849-freeing-the-captives/"><u>Freeing the Captives | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210531428-9781638853503-taming-my-wild-soul/"><u>Taming My Wild Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210530786-9780645000641-the-colour-medicine-oracle-guidebook/"><u>The Colour Medicine Oracle Guidebook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210531496-9798985902211-the-theologians-of-orion/"><u>The Theologians of Orion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210530724-9781778142215-vedic-astrology-the-vedas/"><u>Vedic Astrology & The Vedas | Free Book</u></a></li>
+</ul></div>
+

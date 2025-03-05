@@ -1,7 +1,7 @@
 ---
 title: A History of Ghosts, Spirits and the Supernatural | Free Book
-date: 2024-10-26T01:17:43.961Z
-updated: 2024-10-26T21:06:26.064Z
+date: 2025-03-02T17:56:26.790Z
+updated: 2025-03-04T23:55:55.411Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/32ec6ce2069dc4dbc8d9a1e0ccd49b16fe2046895838d8abb798823bfb14fc27.jpg
@@ -167,3 +167,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/32ec6ce2069dc4dbc8d9a1e0ccd49b1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210450155-9781667418315-ousar/"><u>Ousar | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450148-9781667419701-perfeita-exatamente-como-eu-sou/"><u>Perfeita exatamente como eu sou | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450173-9781667421070-simbolos-curativos-de-los-antiguos-eslavos-glagolitico-terapia-artistica/"><u>Símbolos curativos de los antiguos eslavos. Glagolítico. Terapia artística | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450195-9781667417905-tu-meriti-il-meglio/"><u>Tu meriti il meglio | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210450121-9781667421391-uma-vida-de-sonhos/"><u>Uma vida de sonhos | Free Book</u></a></li>
+</ul></div>
+

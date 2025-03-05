@@ -1,7 +1,7 @@
 ---
 title: The Book of Psychic Self-Defense | Free Book
-date: 2024-10-25T02:10:28.214Z
-updated: 2024-10-27T01:02:08.968Z
+date: 2025-02-27T18:52:34.499Z
+updated: 2025-03-05T00:59:19.880Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a3c8b00f5cac95ef96d8325e48c13325f90efd3eeb9e2536d9dc567489aaf6db.jpg
@@ -220,3 +220,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a3c8b00f5cac95ef96d8325e48c1332
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210655605-9781454942160-1001-tarot-spreads/"><u>1001 Tarot Spreads | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655616-9781454943570-the-druid-path/"><u>The Druid Path | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655611-9781454943471-the-enneagram-workbook/"><u>The Enneagram Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655610-9781454942566-the-holistic-witch/"><u>The Holistic Witch | Free Book</u></a></li>
+</ul></div>
+

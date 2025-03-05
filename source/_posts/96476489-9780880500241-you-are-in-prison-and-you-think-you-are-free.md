@@ -1,7 +1,7 @@
 ---
 title: You Are in Prison and You Think You Are Free | Free Book
-date: 2025-02-13T22:21:32.073Z
-updated: 2025-02-15T21:14:40.844Z
+date: 2025-02-26T01:42:02.398Z
+updated: 2025-03-04T21:44:45.723Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7e3bee9173984c5315dd620a68a236eede.jpg
@@ -170,16 +170,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e8076913effdefaacb4a3c5abb93bd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210237038-9781885928320-alchemy-unveiled/"><u>Alchemy Unveiled | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210237613-9780645096316-awakening/"><u>AWAKENING | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210236747-9781641604000-brujas/"><u>Brujas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210237037-9781885928337-how-to-develop-your-occult-powers/"><u>How to Develop Your Occult Powers | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210237557-9781735026237-the-book-of-jared/"><u>The Book of Jared | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210236353-9780760370841-the-complete-guide-to-astrological-self-care/"><u>The Complete Guide to Astrological Self-Care | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210237745-9781916045125-witchcraft-and-the-old-religion/"><u>Witchcraft and The Old Religion | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124035-9781088032992-5yal5ooz55qe56er5a2m77yi55s15a2q54mi77yj/"><u>冥想的科学（电子版） | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124034-9781088032725-5yal5ooz55qe56er5a2477yi6zu75a2q54mi77yj/"><u>冥想的科學（電子版） | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211123793-9781088027486-let-me-live/"><u>Let me Live! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211123862-9781088022429-love-overcame/"><u>Love Overcame | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211123780-9781087990958-the-luciferians/"><u>The Luciferians | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

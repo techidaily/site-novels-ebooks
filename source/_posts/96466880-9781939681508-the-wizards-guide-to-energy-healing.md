@@ -1,7 +1,7 @@
 ---
 title: The Wizard's Guide to Energy Healing | Free Book
-date: 2025-02-13T20:16:25.620Z
-updated: 2025-02-15T23:33:05.502Z
+date: 2025-03-02T21:28:15.962Z
+updated: 2025-03-04T18:59:00.731Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb21ad71431111f228cffb43ed83ba15ec63.jpg
@@ -178,14 +178,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9abb8a00b8a401af955e0fa5b68feb2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210283368-9781098077594-five-years-and-a-million-tears/"><u>Five Years and a Million Tears | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283320-9781722523527-maximize-your-potential-through-the-power-of-your-subconscious-mind-to-develop-self-confidence-and-self-esteem/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind to Develop Self Confidence and Self Esteem | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283319-9781722526757-the-magic-keys/"><u>The Magic Keys | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283288-9782357288003-thrice-greatest-hermes/"><u>Thrice-Greatest Hermes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210283321-9781722526764-your-super-powers/"><u>Your Super Powers! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211174529-9781250833822-a-world-made-new-a-channeled-text/"><u>A World Made New: A Channeled Text | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211175276-9781615193578-breathe-mama-breathe-5-minute-mindfulness-for-busy-moms/"><u>Breathe, Mama, Breathe: 5-Minute Mindfulness for Busy Moms | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211173675-9798890431011-christian-and-chic-the-art-of-living-with-flair-from-the-christian-perspective/"><u>Christian and Chic: The Art of Living with Flair from the Christian Perspective | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211173577-9781835381106-how-to-reprogram-a-childs-mind-through-the-power-of-storytelling/"><u>How to Reprogram a Child's Mind Through The Power Of Storytelling... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211174645-9781250360557-shadow-work/"><u>Shadow Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211174525-9781250323910-the-book-of-psychic-self-defense/"><u>The Book of Psychic Self-Defense | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211174528--the-healing-power-of-your-subconscious-mind/"><u>The Healing Power of Your Subconscious Mind | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

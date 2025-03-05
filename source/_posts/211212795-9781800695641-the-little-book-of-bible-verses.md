@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Bible Verses | Free Book
-date: 2024-10-23T00:40:31.626Z
-updated: 2024-10-26T19:08:44.783Z
+date: 2025-03-02T01:41:34.265Z
+updated: 2025-03-04T23:57:14.951Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5dd54b82ada95e71bdcb32b1b90c23f79f9007461c1471393cb05922beac0896.jpg
@@ -147,3 +147,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5dd54b82ada95e71bdcb32b1b90c23f
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210501927-9781736973837-girlfriend-u/"><u>Girlfriend U | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210502015-9781953120472-source-dialogues/"><u>Source Dialogues | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210501921-9781087944593-the-heartsoul-healing/"><u>The HeartSoul Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210501943-9781957343013-words-of-the-temple/"><u>Words of the Temple | Free Book</u></a></li>
+</ul></div>
+

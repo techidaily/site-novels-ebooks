@@ -1,7 +1,7 @@
 ---
 title: The Wisdom of Genevieve Behrend | Free Book
-date: 2025-02-14T19:44:24.804Z
-updated: 2025-02-15T19:30:21.037Z
+date: 2025-03-02T16:05:53.325Z
+updated: 2025-03-05T01:18:02.149Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd628496433dbd5b0583786f4260b161219a84cf98.jpg
@@ -158,15 +158,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/a4e85815008e416933bee0fd6284964
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210011865-9781071540930-escrever-para-ser-feliz/"><u>Escrever para ser feliz | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210011975-9781071537084-leadership-gagner-le-respect-et-faire-avancer-les-choses/"><u>Leadership: Gagner Le Respect Et Faire Avancer Les Choses | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210011915-9781071540763-meditacao-para-iniciantes/"><u>Meditação para Iniciantes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210011990-9781071515563-meditazione-pochi-passi-per-il-successo-nella-tua-vita/"><u>Meditazione: Pochi Passi Per Il Successo Nella Tua Vita | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210011890-9781071541449-megans-vader-wordt-ziek/"><u>Megan's Vader Wordt Ziek | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210011908-9781071539521-h-megkan-paei-ippasia/"><u>Η Μέγκαν πάει ιππασία | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877094-9781601635662-celtic-lore-legend/"><u>Celtic Lore & Legend | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877078-9781601634733-close-encounters-of-the-fatal-kind/"><u>Close Encounters of the Fatal Kind | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877106-9781601635327-pleiadian-principles-for-living/"><u>Pleiadian Principles for Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877080-9781601634399-the-akashic-records/"><u>The Akashic Records | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877100-9781601635822-the-lost-civilization-enigma/"><u>The Lost Civilization Enigma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877107-9781601636140-the-lost-worlds-of-ancient-america/"><u>The Lost Worlds of Ancient America | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877101-9781601635808-this-book-is-from-the-future/"><u>This Book is from the Future | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

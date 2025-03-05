@@ -1,7 +1,7 @@
 ---
 title: The Bible 3.0, The 6 Commandments of the Chosen Life | Free Book
-date: 2024-10-25T20:18:33.454Z
-updated: 2024-10-27T02:46:24.070Z
+date: 2025-03-02T23:31:20.246Z
+updated: 2025-03-04T17:35:16.190Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/9b255928bf6b47127fe1f5798b5f1725c5a4d81b1396daec48e61bf9b5192c24.jpg
@@ -206,3 +206,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/9b255928bf6b47127fe1f5798b5f172
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210676853-9781788604352-ageing-upwards/"><u>Ageing Upwards | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676582-9781958921043-shamanism/"><u>Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210677067-9781398827998-the-book-of-tarot/"><u>The Book of Tarot | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676635-9781948692175-third-place/"><u>Third Place | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676849-9781662469572-your-passport-to-alternative-spirituality-and-the-after-life/"><u>Your Passport to Alternative Spirituality and the After-Life | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: The Little Encyclopedia of Fairies | Free Book
-date: 2024-10-19T20:20:04.404Z
-updated: 2024-10-26T17:12:09.451Z
+date: 2025-03-02T00:42:50.068Z
+updated: 2025-03-04T20:58:55.215Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2c1b785fcdb0ca5b839b1e64b9b4bbb8421bcfa871a91426c7b3835e91cf6268.jpg
@@ -156,3 +156,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2c1b785fcdb0ca5b839b1e64b9b4bbb
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210547708-9780648926115-a-burst-for-freedom/"><u>A Burst For Freedom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210547609-9781637109472-bahkruune/"><u>BAHKRUUNE | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210547716-9786166914948-single-and-happy-are-you-a-whole-single/"><u>Single And Happy, Are You a W.H.O.L.E Single? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210547578-9781685177768-spiritual-treatment-for-the-troubled-soul/"><u>Spiritual Treatment for the Troubled Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210547590-9781685175801-the-protectors-and-the-motorcyclists/"><u>The Protectors and the Motorcyclists | Free Book</u></a></li>
+</ul></div>
+

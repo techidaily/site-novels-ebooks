@@ -1,7 +1,7 @@
 ---
 title: Psychedelics and the Coming Singularity | Free Book
-date: 2024-10-25T02:03:16.733Z
-updated: 2024-10-26T16:21:19.435Z
+date: 2025-02-27T23:38:02.366Z
+updated: 2025-03-04T20:53:40.457Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/86aab6abc8df2bceaebae5ccbcc49f1fd8ba649ec9e41857a384d7d7b7a58b1c.jpg
@@ -190,3 +190,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/86aab6abc8df2bceaebae5ccbcc49f1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210769945-9798218135270-messages-from-ramadear/"><u>Messages from Ramadear | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210769975-9781945252976-mom-is-not-always-right/"><u>Mom is Not Always Right | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210769690-9781644119907-the-complete-introduction-to-magic/"><u>The Complete Introduction to Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210770098-9781638145448-the-truth-about-your-healing/"><u>The Truth About Your Healing | Free Book</u></a></li>
+</ul></div>
+

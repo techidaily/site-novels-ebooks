@@ -1,7 +1,7 @@
 ---
 title: Life Power and How to Use It | Free Book
-date: 2025-02-08T17:57:26.388Z
-updated: 2025-02-15T17:14:11.087Z
+date: 2025-02-25T22:31:19.650Z
+updated: 2025-03-04T21:47:55.556Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/35410a4857760b4982c7fbf7a405b8f8b0d68c30dc559a17ffd4ac5d1f54a86a.jpg
@@ -135,17 +135,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/35410a4857760b4982c7fbf7a405b8f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210122951-9780648873945-my-heart-speaks/"><u>My Heart Speaks | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210122195-9781935413271-nagarjuna-on-the-six-perfections/"><u>Nagarjuna on the Six Perfections | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210121740-9781735007625-silently-betrayed/"><u>Silently Betrayed | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210122242-9781735624419-stillness-touch/"><u>Stillness Touch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210121585-9781087912127-tap-into-source/"><u>TAP INTO SOURCE | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210122872-9781528791298-the-book-of-the-damned/"><u>The Book of the Damned | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210121705-9781722526177-the-master-key-system-original-classic-edition/"><u>The Master Key System (Original Classic Edition) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210121343-9780578731193-the-whole-kit-and-caboodle-is-as-sacred-as-123-2nd-ed/"><u>The Whole Kit And Caboodle Is... As Sacred As 1,2,3 (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932907-9781912230594-dementia/"><u>Dementia | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932900-9781855844223-from-mammoths-to-mediums/"><u>From Mammoths to Mediums... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932901-9781855844346-mystery-of-the-universe/"><u>Mystery of the Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932908-9781855842830-rosicrucian-wisdom/"><u>Rosicrucian Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932903-9781855843011-secret-brotherhoods/"><u>Secret Brotherhoods | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932906-9781855842953-theosophy/"><u>Theosophy | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Thoughts I Met On the Highway | Free Book
-date: 2025-02-10T23:44:43.912Z
-updated: 2025-02-16T00:58:34.815Z
+date: 2025-02-28T19:38:56.355Z
+updated: 2025-03-05T02:07:10.925Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550bd79eac615dd500c2c1ab152c21713f37.jpg
@@ -137,14 +137,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/22f52270ab034b47bee5401e951a550
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210014271-9781473581180-bloom-thrive/"><u>Bloom & Thrive | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210014929-9780593355459-circle-round/"><u>Circle Round | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210014702-9781493044788-spooky-pennsylvania-2nd-ed/"><u>Spooky Pennsylvania (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210014269-9781473581173-you-are-a-rainbow/"><u>You Are A Rainbow | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210014273-9781473581470-you-are-cosmic-code/"><u>You Are Cosmic Code | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877125-9781601637772-the-psychic-life-of-abraham-lincoln/"><u>The Psychic Life of Abraham Lincoln | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877132-9781601637338-the-purpose-guided-universe/"><u>The Purpose-Guided Universe | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877122-9781601636942-the-templar-papers/"><u>The Templar Papers | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877131-9781601637130-vampires/"><u>Vampires | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877145-9781601639301-walking-with-the-green-man/"><u>Walking With the Green Man | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

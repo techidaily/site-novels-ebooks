@@ -1,7 +1,7 @@
 ---
 title: The Science of Being Great | Free Book
-date: 2025-02-13T00:35:04.705Z
-updated: 2025-02-16T02:38:00.845Z
+date: 2025-03-01T17:36:07.051Z
+updated: 2025-03-04T21:10:06.704Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb6500ae5a766e98e9b9809808c4679da69.jpg
@@ -139,18 +139,12 @@ thumbnail: https://thmb-001-ebook.techidaily.com/154587b607ae1f6c33a0b30013643bb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210102657-9781071553459-40-dosis-de-sabiduria/"><u>40 Dosis de Sabiduría | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102639-9781071552308-journal-de-meditation-pour-une-reflexion-quotidienne/"><u>Journal de méditation pour une réflexion quotidienne | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102596-9781071553626-meditazione-per-principianti/"><u>Meditazione per Principianti | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102609-9781071557211-megan-en-de-oude-dame/"><u>Megan en de Oude Dame | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102822-9781071558683-mindfulness-para-gestantes/"><u>Mindfulness para gestantes | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102823-9781071557112-my-last-glass/"><u>My Last Glass | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102692-9781071553961-pase-entre-bastidores-al-otro-lado-charlas-con-el-mas-alla-con-jennifer-shaffer-segunda-parte/"><u>Pase entre bastidores al otro lado: Charlas con el más allá con Jennifer Shaffer, Segunda parte. | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102840--prohibitted-knowledge/"><u>Prohibitted Knowledge | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210102532-9781786784858-sitting-comfortably/"><u>Sitting Comfortably | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929655-9781803811413-finding-your-voice/"><u>Finding Your Voice | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210930108-9780717191802-mind-full/"><u>Mind Full | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929624-9781839750458-playing-with-fire-tales-of-duality/"><u>Playing With Fire (Tales of Duality) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929622-9781839750694-strange-sightings-and-mysterious-creatures-in-the-new-forest-and-beyond/"><u>Strange Sightings and Mysterious Creatures in the New Forest and Beyond | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929634-9781839750571-testament-to-a-new-dawn/"><u>Testament to a New Dawn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929873-9780717190416-this-is-it/"><u>This Is It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210929601-9781839757037-you-me-and-us/"><u>You, Me and Us | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

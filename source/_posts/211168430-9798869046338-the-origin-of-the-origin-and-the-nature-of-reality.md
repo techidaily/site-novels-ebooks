@@ -1,7 +1,7 @@
 ---
 title: The Origin of the Origin and the Nature of Reality | Free Book
-date: 2024-10-20T23:48:51.437Z
-updated: 2024-10-26T18:30:22.494Z
+date: 2025-02-25T19:06:33.566Z
+updated: 2025-03-04T18:38:31.576Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/14d06d1a548d730603000f10ae451fc3b54d6d62dfbd203558d1c8286c0bdc7b.jpg
@@ -174,3 +174,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/14d06d1a548d730603000f10ae451fc
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210632718-9781959018087-astrology/"><u>Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632791-9798986395425-beyond-love/"><u>Beyond Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632712-9781777791421-operation-who-am-i/"><u>Operation Who Am I | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632713-9781959018056-reiki/"><u>Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632727-9781959018025-runes/"><u>Runes | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210632721-9780645247510-strange-events/"><u>Strange Events | Free Book</u></a></li>
+</ul></div>
+

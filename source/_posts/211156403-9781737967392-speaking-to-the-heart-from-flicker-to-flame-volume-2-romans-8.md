@@ -1,7 +1,7 @@
 ---
 title: Speaking to the Heart from Flicker to Flame volume 2 Romans 8 | Free Book
-date: 2024-10-21T00:10:36.227Z
-updated: 2024-10-26T20:14:43.542Z
+date: 2025-03-02T19:14:02.594Z
+updated: 2025-03-04T18:53:11.795Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6beb807e93b40c68df628914b1d2000ef2e0b9315e4e20078d24a87e277eabcf.jpg
@@ -162,3 +162,12 @@ an anthology book series with an intentional purpose...</pre
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210696308-9781647842710-heideggers-philosophy-of-life-metamorphosis-the-reality-of-existence-and-sublimation-of-life-volume-4/"><u>Heidegger's Philosophy of Life: Metamorphosis: The Reality of Existence and Sublimation of Life (Volume 4) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210696240--the-awakening-of-existentialism/"><u>The Awakening of Existentialism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210696241-9781647842703-the-life-philosophy-of-the-master-of-existentialism/"><u>The Life Philosophy of the Master of Existentialism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210696239-9781647842680-the-unsolved-mystery-of-life-and-death/"><u>The Unsolved Mystery of Life and Death | Free Book</u></a></li>
+</ul></div>
+

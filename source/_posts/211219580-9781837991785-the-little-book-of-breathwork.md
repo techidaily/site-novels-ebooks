@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Breathwork | Free Book
-date: 2024-10-24T21:05:46.422Z
-updated: 2024-10-27T01:49:59.244Z
+date: 2025-03-02T02:10:03.449Z
+updated: 2025-03-04T19:54:20.399Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/c58020d9a1b45acace7e8137f504578a1eebc4f8238bcc3b52cf95fc3dd44cd8.jpg
@@ -147,3 +147,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/c58020d9a1b45acace7e8137f504578
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210415867-9781722527020-at-your-command/"><u>At Your Command | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415932-9781088008799-blankets-of-praise/"><u>Blankets of Praise | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415868-9781722523497-maximize-your-potential-through-the-power-of-your-subconscious-mind-for-a-more-spiritual-life/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind for A More Spiritual Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415869-9781722523503-maximize-your-potential-through-the-power-of-your-subconscious-mind-for-an-enriched-life/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind for An Enriched Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415866-9781722523510-maximize-your-potential-through-the-power-of-your-subconscious-mind-for-health-and-vitality/"><u>Maximize Your Potential Through the Power of Your Subconscious Mind for Health and Vitality | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415884-9781638149026-tell-me-about-your-mother/"><u>Tell Me About Your Mother | Free Book</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Born With a Question Mark in Your Heart | Free Book
-date: 2025-02-12T01:38:29.246Z
-updated: 2025-02-15T20:56:49.761Z
+date: 2025-03-02T21:49:39.216Z
+updated: 2025-03-05T01:18:22.628Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f885342066bdc3b498e7939ef186e37a9e69.jpg
@@ -171,18 +171,14 @@ thumbnail: https://thmb-001-ebook.techidaily.com/15a41719cc6757cc87a67fecaeb4f88
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210232463-9781644113172-angels-in-waiting/"><u>Angels in Waiting | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232469-9781644113974-our-african-unconscious-3rd-ed/"><u>Our African Unconscious (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232466-9781644113394-psychedelic-cannabis-2nd-ed/"><u>Psychedelic Cannabis (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232471-9781644113332-psychedelics-and-psychotherapy/"><u>Psychedelics and Psychotherapy | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232460-9781644111710-tales-of-witchcraft-and-wonder/"><u>Tales of Witchcraft and Wonder | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232456-9781644112687-the-path-of-the-warrior-mystic/"><u>The Path of the Warrior-Mystic | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232461-9781644113356-the-poison-path-herbal/"><u>The Poison Path Herbal | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232462-9781644113233-the-tree-horoscope/"><u>The Tree Horoscope | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210232467-9781644114179-three-books-of-occult-philosophy/"><u>Three Books of Occult Philosophy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211112034-9783988315267-chakras-for-beginners/"><u>CHAKRAS FOR BEGINNERS | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211112080-9780998334783-conversations-with-thoth/"><u>Conversations With Thoth | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211112133-9781088109526-dark-night-of-the-soul-your-unexplained-suffering-happens-when-gods-hand-is-at-work/"><u>Dark Night of the Soul. Your Unexplained Suffering Happens When God's Hand is at Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211112064-9781088110393-el-diario-de-sofia/"><u>El Diario de Sofía | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211112127-9781088109847-from-suffering-to-healing-when-life-falls-apart-you-need-answers-you-need-healing/"><u>From Suffering to Healing. When Life Falls Apart, You Need Answers. You Need Healing. | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211112174-9798887938707-half-breed/"><u>Half-Breed | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211112112-9781636801995-lifes-hard-succeed-anyway/"><u>LIFE'S HARD SUCCEED ANYWAY | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211112017-9798986311456-wild-moon-healing-revolution/"><u>Wild Moon Healing Revolution | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211112123-9783988315304-yoga-nidra/"><u>YOGA NIDRA | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

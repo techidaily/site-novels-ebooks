@@ -1,7 +1,7 @@
 ---
 title: Just How to Wake the Solar Plexus | Free Book
-date: 2025-02-14T18:23:16.708Z
-updated: 2025-02-15T19:35:56.093Z
+date: 2025-02-27T21:17:50.205Z
+updated: 2025-03-04T22:28:00.859Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b48bf42b5e8bca9039e740d8712eaf86cee.jpg
@@ -134,15 +134,10 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5299c1c46218bc7740fd7238b05e2b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210003945-9781761035012-feng-shui/"><u>Feng Shui | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003937-9781761034954-magick/"><u>Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003938-9781761034930-magickal-seduction/"><u>Magickal Seduction | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003941-9781761034947-sex-magick/"><u>Sex Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003934-9781761034909-thought-symbols/"><u>Thought Symbols | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210003935-9781761034923-wealth-magick/"><u>Wealth Magick | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210866784-9780955139956-becoming-the-sexual-athlete/"><u>Becoming the Sexual Athlete | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210865175-9781088141311-greater-exploits-6-perfect-testimonies-and-images-of-the-father-for-greater-exploits/"><u>Greater Exploits - 6 Perfect Testimonies and Images of The Father for Greater Exploits | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210866760-9798218226107-magic-mushroom-seekers-guide-to-the-galaxy/"><u>Magic Mushroom Seekers' Guide to the Galaxy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210866712-9781640085015-what-time-is-it-in-your-life-its-time-totake-back-your-power-and-testify/"><u>What Time Is It In Your Life? It's Time to...Take Back Your Power and Testify! | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210866914-9780008606077-you-must-be-psychic-secrets-to-unlock-your-inner-power-and-reveal-your-future/"><u>You Must Be Psychic: Secrets to unlock your inner power and reveal your future | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

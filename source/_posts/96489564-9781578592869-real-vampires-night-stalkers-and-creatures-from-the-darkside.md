@@ -1,7 +1,7 @@
 ---
 title: Real Vampires, Night Stalkers and Creatures from the Darkside | Free Book
-date: 2025-02-09T16:49:14.109Z
-updated: 2025-02-15T16:29:18.620Z
+date: 2025-03-02T22:08:43.461Z
+updated: 2025-03-05T00:20:57.193Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba52cc7846904e33e59cad7bfcbbcd8d453.jpg
@@ -213,13 +213,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/49541239ad57842c740a5445af78bba
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210204715-9781925816334-a-year-of-loving-kindness-to-myself/"><u>A Year of Loving Kindness to Myself | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210204515-9781684035731-good-morning-intentions/"><u>Good Morning Intentions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210203698-9781637958810-written-in-the-stars/"><u>Written in the Stars | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210204337--your-soul-had-a-dream-your-life-is-it/"><u>Your Soul Had a Dream, Your Life Is It | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211065233-9789359392189-gleanings-of-a-mystic/"><u>Gleanings Of A Mystic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066188-9789359040059-irish-witchcraft-and-demonology/"><u>Irish Witchcraft and Demonology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066169-9789359043395-paradise-found/"><u>Paradise Found | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066189-9789359043418-the-history-of-spiritualism-vol-ii/"><u>The History of Spiritualism, Vol. II | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066207-9789359043692-the-voice-of-venus/"><u>The Voice of Venus | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066202-9789359046563-through-the-gates-of-death/"><u>Through the Gates of Death | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066183-9789359043678-wild-talents/"><u>Wild Talents | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066221-9789358059939-witchcraft-of-new-england-explained-by-modern-spiritualism/"><u>Witchcraft of New England Explained by Modern Spiritualism | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

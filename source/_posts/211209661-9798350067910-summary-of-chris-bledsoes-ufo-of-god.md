@@ -1,7 +1,7 @@
 ---
 title: Summary of Chris Bledsoe's UFO of GOD | Free Book
-date: 2024-10-21T17:51:42.026Z
-updated: 2024-10-27T00:15:37.348Z
+date: 2025-02-26T17:31:41.242Z
+updated: 2025-03-04T16:22:04.016Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/2d8f6db7597c676b81bade83ed135c1e5257dac64def7708d3f67abc5bcb27ad.jpg
@@ -134,3 +134,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/2d8f6db7597c676b81bade83ed135c1
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210470557-9789692292788-enriching-the-immortal-soul/"><u>Enriching the Immortal Soul | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470485-9781922428783-hashamayim-1b/"><u>Hashamayim 1B | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470836-9789814952897-how-to-do-nothing/"><u>How To Do Nothing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470498-9780578362809-life-is-worth-more-than-just-living/"><u>Life Is Worth More Than Just Living | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470837-9789814952835-motivation-workbook-positive-mindset-only/"><u>Motivation Workbook: Positive Mindset Only | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470502-9781087891613-now-i-know-my-abcs-life-alphabet/"><u>Now I know my ABC's Life Alphabet | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470451-9798985097092-slaying-your-dragons/"><u>Slaying Your Dragons | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470467-9781953806765-take-center-stage/"><u>Take Center Stage | Free Book</u></a></li>
+</ul></div>
+

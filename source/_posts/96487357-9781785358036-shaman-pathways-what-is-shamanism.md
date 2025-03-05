@@ -1,7 +1,7 @@
 ---
 title: Shaman Pathways - What is Shamanism? | Free Book
-date: 2025-02-08T18:12:56.818Z
-updated: 2025-02-15T20:40:15.755Z
+date: 2025-02-28T01:40:14.600Z
+updated: 2025-03-04T20:56:32.681Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e87d76253cea5ecd7a29bb543aace92522.jpg
@@ -139,15 +139,9 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5d412dadf6c67a1a21eeedd6eb34b9e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210198679-9781631597435-cosmic-crystals/"><u>Cosmic Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198701-9780760361160-in-focus-crystals/"><u>In Focus Crystals | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198688-9781782406785-mindfulness-in-music/"><u>Mindfulness in Music | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198702-9781782409984-mindfulness-in-sound/"><u>Mindfulness in Sound | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198706-9780760366295-superstitions/"><u>Superstitions | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210198728-9781631598432-the-magical-writing-grimoire/"><u>The Magical Writing Grimoire | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211032893-9781401975876-breathe-how-you-want-to-feel/"><u>Breathe How You Want to Feel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211040128-9781088273722-terapia-de-brujeria/"><u>Terapia de Brujería | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211040129-9781088273586-terapia-de-brujeria/"><u>Terapia de Brujería | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211040136-9781088273357-terapia-de-brujeria/"><u>Terapia de Brujería | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

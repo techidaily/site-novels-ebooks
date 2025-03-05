@@ -1,7 +1,7 @@
 ---
 title: How to Find Calm in Five Minutes a Day | Free Book
-date: 2024-10-20T03:34:52.404Z
-updated: 2024-10-26T23:41:23.007Z
+date: 2025-02-28T17:39:58.114Z
+updated: 2025-03-04T16:05:48.806Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/e6814687bba276e08c5028ca435d0329229b2821e65d8516e483c1c89f02c7be.jpg
@@ -146,3 +146,17 @@ thumbnail: https://thmb-001-ebook.techidaily.com/e6814687bba276e08c5028ca435d032
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210417221-9781638744283-a-day-with-dori/"><u>A Day with Dori | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210416028-9781902405995-an-introduction-to-medical-astrology/"><u>An Introduction to Medical Astrology | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210417016-9781087999999-anger-management/"><u>ANGER MANAGEMENT | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210417031-9781737887515-cancer-mi-mejor-maestro/"><u>Cancer Mi Mejor Maestro | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418448-9781902405773-horary-astrology-re-examined/"><u>Horary Astrology Re-Examined | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210417149-9781737726029-soul-fullness-3rd-ed/"><u>Soul-Fullness (3rd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210417208-9781098057435-the-enemy-will-try-to-steal-your-purpose/"><u>The Enemy Will Try to Steal Your Purpose | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210415958-9781088008676-the-wayfarer-magazine/"><u>The Wayfarer Magazine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210416000-9781638445777-to-kill-the-firstborn/"><u>To Kill the Firstborn | Free Book</u></a></li>
+</ul></div>
+

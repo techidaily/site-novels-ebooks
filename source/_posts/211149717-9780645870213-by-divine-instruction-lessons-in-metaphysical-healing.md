@@ -1,7 +1,7 @@
 ---
 title: By Divine Instruction - Lessons in Metaphysical Healing | Free Book
-date: 2024-10-23T02:51:52.020Z
-updated: 2024-10-26T18:21:42.788Z
+date: 2025-03-01T16:25:23.939Z
+updated: 2025-03-04T23:44:19.404Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/93063134e73c900daf28fad4d40388b00fcb3877474d720a0be89cd43c882113.jpg
@@ -171,3 +171,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/93063134e73c900daf28fad4d40388b
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210720504-9781958313541-a-short-beginners-guide-on-how-to-pray-salah/"><u>A Short Beginners Guide on How to Pray Salah | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210718636-9781784979744-calling-us-home/"><u>Calling Us Home | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210720195-9780593512005-recovery/"><u>Recovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210717980-9781803410753-to-sing-with-bards-and-angels/"><u>To Sing with Bards and Angels | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210720517-9780876128541-why-god-permits-evil/"><u>Why God Permits Evil | Free Book</u></a></li>
+</ul></div>
+

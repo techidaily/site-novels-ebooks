@@ -1,7 +1,7 @@
 ---
 title: A Mindfulness Guide for Survival | Free Book
-date: 2024-10-21T01:57:27.262Z
-updated: 2024-10-26T16:40:45.280Z
+date: 2025-02-25T23:07:41.703Z
+updated: 2025-03-04T20:14:50.961Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/bd2143950c4739192e10cd6203de332699db2ab57aeaf368412ae6915761a2da.jpg
@@ -144,3 +144,15 @@ thumbnail: https://thmb-001-ebook.techidaily.com/bd2143950c4739192e10cd6203de332
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210761476-9781591798767-emptiness-dancing/"><u>Emptiness Dancing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761479-9781604079456-energy-healing/"><u>Energy Healing | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761491-9781622030750-how-to-meditate/"><u>How to Meditate | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761488-9781622031634-plant-spirit-medicine/"><u>Plant Spirit Medicine | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761493-9781622031115-red-hot-and-holy/"><u>Red Hot and Holy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761484-9781604079142-the-deepest-acceptance/"><u>The Deepest Acceptance | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761485-9781622030491-the-subtle-body-practice-manual/"><u>The Subtle Body Practice Manual | Free Book</u></a></li>
+</ul></div>
+

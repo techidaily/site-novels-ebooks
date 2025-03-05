@@ -1,7 +1,7 @@
 ---
 title: The Science of Getting Rich | Free Book
-date: 2025-02-09T17:57:31.132Z
-updated: 2025-02-15T17:53:48.018Z
+date: 2025-03-03T23:18:30.396Z
+updated: 2025-03-04T16:27:22.710Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43bb165fe17db857a49eb24126f2f77ed5c.jpg
@@ -137,17 +137,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ea4e06c07d7245fb745cd7aac776b43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210094609-9781838109219-a-journal-to-you/"><u>A Journal To You | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210094783-9780648921509-celebrate-your-gold-within/"><u>CELEBRATE YOUR GOLD WITHIN | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210094197-9781401959746-chica-why-not/"><u>Chica, Why Not? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210094270-9780593232026-karma/"><u>Karma | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210094572-9781735349213-radical-enlightenment-my-guy-on-the-9th-floor/"><u>Radical Enlightenment: My Guy On The 9th Floor | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210094708-9781646670208-struggle-trauma-nor-bad-choices-stopped-me/"><u>Struggle Trauma Nor Bad Choices Stopped Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210094009-9781789044997-walks-with-sam/"><u>Walks With Sam | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210094004-9781789043037-wisdom-from-the-spirit-world/"><u>Wisdom From the Spirit World | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926285-9781903353554-from-the-moment-we-met/"><u>From The Moment We Met | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926291-9781903353714-humour-in-the-horoscope/"><u>Humour in the Horoscope | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926287-9781903353578-planetary-cycles-cinema-trends/"><u>Planetary Cycles & Cinema Trends | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926283-9781903353639-the-astrology-of-the-self/"><u>The Astrology of the Self | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926288-9781903353615-the-planets-and-awakening/"><u>The Planets and Awakening | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926290-9781903353370-vocation/"><u>Vocation | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Gratitude | Free Book
-date: 2024-10-24T00:34:59.876Z
-updated: 2024-10-27T02:56:51.072Z
+date: 2025-02-28T17:30:45.153Z
+updated: 2025-03-04T22:40:03.615Z
 categories:
   - \n                            Body, Mind & Spirit\n                        
 thumbnail: https://thmb-001-ebook.techidaily.com/ec47d73fa39e1a2882d5da1d841ca00164fa37402cdf2750c993d1505e514712.jpg
@@ -171,3 +171,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/ec47d73fa39e1a2882d5da1d841ca00
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210688847-9781667442419-5pel44cf44gu556r5ooz44gr44ki44kl44oe44kk44oz44oj44ov44or44on44k544ks44kk44oj/"><u>日々の瞑想によるマインドフルネスガイド | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210688439-9781476648323-culture-and-human-thought/"><u>Culture and Human Thought | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210688798-9781667442327-insieme/"><u>Insieme | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210688689-9781667442242-perdonatemi/"><u>Perdonatemi... | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210688457-9780593673874-the-magic-of-astrology/"><u>The Magic of Astrology | Free Book</u></a></li>
+</ul></div>
+

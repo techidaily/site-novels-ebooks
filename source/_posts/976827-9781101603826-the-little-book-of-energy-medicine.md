@@ -1,7 +1,7 @@
 ---
 title: The Little Book of Energy Medicine | Free Book
-date: 2025-02-10T16:47:27.728Z
-updated: 2025-02-16T01:58:21.949Z
+date: 2025-02-28T22:23:15.474Z
+updated: 2025-03-05T00:42:54.405Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c2aeb5b53f09caa1fb13321987a634dada.jpg
@@ -192,14 +192,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/21ccd86ae17e2cf96158b7cfbdb9c3c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/209974920-9781493045792-haunted-arizona-2nd-ed/"><u>Haunted Arizona (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974921-9781493045754-haunted-maryland-2nd-ed/"><u>Haunted Maryland (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974919-9781493046294-haunted-massachusetts-2nd-ed/"><u>Haunted Massachusetts (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209975671-9781506456676-shining-like-the-sun-seven-mindful-practices-for-rekindling-your-faith/"><u>Shining like the Sun: Seven Mindful Practices for Rekindling Your Faith | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209975662-9781317837565-the-forgotten-aged/"><u>The Forgotten Aged | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210842052-9781401976347-111-oracle-spreads-for-every-day/"><u>111 Oracle Spreads for Every Day | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210842060-9781837821150-21-days-to-jump-start-your-intuition/"><u>21 Days to Jump-Start Your Intuition | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210840692-9781634243995-cannabis/"><u>Cannabis | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210842871-9780761158271-do-more-great-work/"><u>Do More Great Work | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210843107-9781797222097-let-it-burn/"><u>Let It Burn | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845109-9780760385555-tarot-magic/"><u>Tarot Magic | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210842725-9781579659714-the-crystal-workshop/"><u>The Crystal Workshop | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845104-9780760380031-the-kitchen-witch-handbook/"><u>The Kitchen Witch Handbook | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

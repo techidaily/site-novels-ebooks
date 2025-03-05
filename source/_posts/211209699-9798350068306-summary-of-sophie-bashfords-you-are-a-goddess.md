@@ -1,7 +1,7 @@
 ---
 title: Summary of Sophie Bashford's You Are a Goddess | Free Book
-date: 2024-10-21T03:44:53.019Z
-updated: 2024-10-27T05:25:37.172Z
+date: 2025-02-28T00:19:13.873Z
+updated: 2025-03-04T19:32:39.017Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/6ddd10f84929f4c64fe2d52d82d3766d7e6b62512dbe648400d41a1506b25a09.jpg
@@ -136,3 +136,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/6ddd10f84929f4c64fe2d52d82d3766
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210475747-9781639035915-almost-heaven/"><u>Almost Heaven | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210475512-9798985428414-boldly-bound/"><u>Boldly Bound | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210475585-9781641336598-gods-unfinished-masterpiece-woman/"><u>God's Unfinished Masterpiece (Woman) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210474984-9798985326727-inhabit-your-joy/"><u>Inhabit Your Joy | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210475093-9781667424002-les-treize-ans-de-megan/"><u>Les treize ans de Megan | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210474891-9798985012293-secret-chief-revealed-revised-2nd-edition-2nd-ed/"><u>Secret Chief Revealed, Revised 2nd Edition (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210475467-9781637676615-slow-yourself-to-wellness/"><u>Slow Yourself to Wellness | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210474223-9781922691323-the-test-of-time/"><u>The Test of Time | Free Book</u></a></li>
+</ul></div>
+

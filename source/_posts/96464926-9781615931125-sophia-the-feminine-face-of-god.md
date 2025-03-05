@@ -1,7 +1,7 @@
 ---
 title: Sophia - The Feminine Face of God | Free Book
-date: 2025-02-12T20:02:57.190Z
-updated: 2025-02-15T21:33:25.113Z
+date: 2025-03-04T02:12:05.091Z
+updated: 2025-03-04T20:27:21.929Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945f25bb980ec8e95a46b99d342e1e1cc99c.jpg
@@ -134,18 +134,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/8b2d9bb6b8830f5432d7d4d2d313945
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210269999-9781071594049-bible-de-meditation-quotidienne/"><u>Bible de méditation quotidienne | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270023-9781071543986-biblia-de-meditacion-diaria/"><u>Biblia de Meditación Diaria | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210269968-9781071592656-bonecas-mascotes-eslavas/"><u>Bonecas mascotes eslavas | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270075-9781071594551-come-realizzare-i-vostri-sogni-e-obiettivi/"><u>Come Realizzare i Vostri Sogni e Obiettivi | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210269719-9782019459147-et-si-cela-vous-arrivait/"><u>Et si cela vous arrivait ? | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270009-9781071594056-meditation-fur-anfanger/"><u>Meditation für Anfänger | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270022-9781071593196-other-me/"><u>Other Me | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210269717-9782017168881-psychic-witch/"><u>Psychic Witch | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210270113-9781071595633-secondo-io/"><u>Secondo IO | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211152067-9789493359017-de-symboliek-van-dieren-en-boodschappen-van-het-orakel/"><u>De symboliek van dieren en boodschappen van het orakel | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211151915-9798888515143-obey-me-its-not-what-you-think-or-is-it/"><u>OBEY ME It's Not What You Think--or Is It? | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211152059-9798868978760-therapie-de-la-sorcellerie/"><u>Thérapie de la Sorcellerie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211152060-9798868978616-therapie-de-la-sorcellerie/"><u>Thérapie de la Sorcellerie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211152068-9798868978692-therapie-de-la-sorcellerie/"><u>Thérapie de la Sorcellerie | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211152070-9798868978739-therapie-de-la-sorcellerie/"><u>Thérapie de la Sorcellerie | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

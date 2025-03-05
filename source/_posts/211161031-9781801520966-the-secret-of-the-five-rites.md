@@ -1,7 +1,7 @@
 ---
 title: The Secret of the Five Rites | Free Book
-date: 2024-10-23T22:14:13.619Z
-updated: 2024-10-27T04:58:47.157Z
+date: 2025-03-01T00:45:34.676Z
+updated: 2025-03-04T21:41:08.072Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/b28e15ce93884290e2e745b0995d6893710be045f4f3349126975178cba766ce.jpg
@@ -192,3 +192,13 @@ thumbnail: https://thmb-001-ebook.techidaily.com/b28e15ce93884290e2e745b0995d689
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210711783-9781454933892-a-little-bit-of-pendulums/"><u>A Little Bit of Pendulums | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711791-9781454933694-a-little-bit-of-reiki/"><u>A Little Bit of Reiki | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711785-9781454933762-a-little-bit-of-shamanism/"><u>A Little Bit of Shamanism | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711777-9781454933199-the-mood-book/"><u>The Mood Book | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210711787-9781454934547-the-power-of-crystal-healing/"><u>The Power of Crystal Healing | Free Book</u></a></li>
+</ul></div>
+

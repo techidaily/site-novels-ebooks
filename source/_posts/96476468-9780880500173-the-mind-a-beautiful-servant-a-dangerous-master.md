@@ -1,7 +1,7 @@
 ---
 title: "The Mind: a beautiful servant, a dangerous master | Free Book"
-date: 2025-02-15T02:47:25.758Z
-updated: 2025-02-15T22:22:52.006Z
+date: 2025-02-27T02:11:29.824Z
+updated: 2025-03-04T16:18:48.335Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9e5993f39e63446a08a902e0222a4e0b5d.jpg
@@ -167,16 +167,11 @@ thumbnail: https://thmb-001-ebook.techidaily.com/75084061df56c2ea9e5d75974f59ac9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/210228254-9781736107416-choosing-wellness/"><u>Choosing Wellness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210224056-9781684038916-mood-magick/"><u>Mood Magick | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210224094-9781644249840-sammy-and-the-angels/"><u>Sammy and the Angels | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210228534-9781838141110-signposts-to-source/"><u>Signposts to Source | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210224933-9780857909817-the-diary-of-archie-the-alpaca/"><u>The Diary of Archie the Alpaca | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210224035-9781684037162-the-science-of-channeling/"><u>The Science of Channeling | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210228445-9781638215479-this-is-pk-mind-over-matter-2nd-ed/"><u>This Is "PK " Mind Over Matter (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107741-9798886441727-a-journey-to-recovery/"><u>A Journey to Recovery | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211108051-9798822917019-from-creepin-2-preachin/"><u>From Creepin 2 Preachin | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107974-9798989184828-say-well/"><u>Say Well | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107881-9781952491979-spiritual-shortcuts/"><u>Spiritual Shortcuts | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107929-9781544544892-system-vs-creator/"><u>System vs. Creator | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211107851-9789083267661-the-triangle-of-master-g/"><u>The Triangle of Master G | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Book of Forgotten Witches | Free Book
-date: 2024-10-20T23:21:16.128Z
-updated: 2024-10-27T04:54:40.119Z
+date: 2025-03-01T20:22:04.987Z
+updated: 2025-03-04T21:19:22.705Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/622bd8652953e8d3c707a78569a2c2ec249f377fdc706a12c7a44c93e9f3579a.jpg
@@ -171,3 +171,16 @@ thumbnail: https://thmb-001-ebook.techidaily.com/622bd8652953e8d3c707a78569a2c2e
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
     
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210562412-9781935492214-el-descanso-pleno/"><u>El descanso pleno | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562032-9780593435885-guided-tarot-for-teens/"><u>Guided Tarot for Teens | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562409-9781935492108-living-the-spiritual-principles-of-health-and-well-being/"><u>Living the Spiritual Principles of Health and Well-Being | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562414-9781935492023-serving-amp-giving/"><u>Serving &amp; Giving | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562315-9781734574197-star-quest-navigator-navigator/"><u>Star Quest: Navigator: Navigator | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210563061-9781911670193-the-alexander-technique-workbook/"><u>The Alexander Technique Workbook | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562411-9781893020887-the-rest-of-your-life/"><u>The Rest of Your Life | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562419-9781893020795-you-are-the-blessings/"><u>You Are the Blessings | Free Book</u></a></li>
+</ul></div>
+
